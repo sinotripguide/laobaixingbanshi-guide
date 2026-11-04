@@ -2242,11 +2242,7 @@
 - [重庆洪崖洞要门票吗？免费景点游玩攻略+拍照位](https://laobaixingbanshi.com/%e9%87%8d%e5%ba%86%e6%b4%aa%e5%b4%96%e6%b4%9e%e8%a6%81%e9%97%a8%e7%a5%a8%e5%90%97%ef%bc%9f%e5%85%8d%e8%b4%b9%e6%99%af%e7%82%b9%e6%b8%b8%e7%8e%a9%e6%94%bb%e7%95%a5%e6%8b%8d%e7%85%a7%e4%bd%8d/)
 
 - [哈尔滨冰雪大世界门票2026？开园时间+必玩项目](https://laobaixingbanshi.com/%e5%93%88%e5%b0%94%e6%bb%a8%e5%86%b0%e9%9b%aa%e5%a4%a7%e4%b8%96%e7%95%8c%e9%97%a8%e7%a5%a82026%ef%bc%9f%e5%bc%80%e5%9b%ad%e6%97%b6%e9%97%b4%e5%bf%85%e7%8e%a9%e9%a1%b9%e7%9b%ae/)
-## 购物优惠（198篇）
-- [吴大嫂素三鲜水饺实测：800g40只39块9，立冬这锅我连煮三顿](https://laobaixingbanshi.com/wanle/%e5%90%b4%e5%a4%a7%e5%ab%82%e7%b4%a0%e4%b8%89%e9%b2%9c%e6%b0%b4%e9%a5%ba%e5%ae%9e%e6%b5%8b%ef%bc%9a800g40%e5%8f%aa39%e5%9d%979%ef%bc%8c%e7%ab%8b%e5%86%ac%e8%bf%99%e9%94%85%e6%88%91%e8%bf%9e%e7%85%ae.html)
-- [百乐P500金标笔实测：3支29块16，学生党为什么死磕这支笔](https://laobaixingbanshi.com/wanle/%e7%99%be%e4%b9%90p500%e9%87%91%e6%a0%87%e7%ac%94%e5%ae%9e%e6%b5%8b%ef%bc%9a3%e6%94%af29%e5%9d%9716%ef%bc%8c%e5%ad%a6%e7%94%9f%e5%85%9a%e4%b8%ba%e4%bb%80%e4%b9%88%e6%ad%bb%e7%a3%95%e8%bf%99%e6%94%af.html)
-- [卡斐乐三合一数据线实测：28块4，一根顶三根，出差终于不缠三头](https://laobaixingbanshi.com/wanle/%e5%8d%a1%e6%96%90%e4%b9%90%e4%b8%89%e5%90%88%e4%b8%80%e6%95%b0%e6%8d%ae%e7%ba%bf%e5%ae%9e%e6%b5%8b%ef%bc%9a28%e5%9d%974%ef%bc%8c%e4%b8%80%e6%a0%b9%e9%a1%b6%e4%b8%89%e6%a0%b9%ef%bc%8c%e5%87%ba.html)
-- [绿之源除湿袋实测：8块5一袋，衣柜挂两周接了小半袋水](https://laobaixingbanshi.com/wanle/%e7%bb%bf%e4%b9%8b%e6%ba%90%e9%99%a4%e6%b9%bf%e8%a2%8b%e5%ae%9e%e6%b5%8b%ef%bc%9a8%e5%9d%975%e4%b8%80%e8%a2%8b%ef%bc%8c%e8%a1%a3%e6%9f%9c%e6%8c%82%e4%b8%a4%e5%91%a8%e6%8e%a5%e4%ba%86%e5%b0%8f%e5%8d%8a.html)
+
 
 
 - [10月底腾冲跟团4天花了1680，银杏村金叶落满小院，花费明细我给你摊开算](https://laobaixingbanshi.com/wanle/10%e6%9c%88%e5%ba%95%e8%85%be%e5%86%b2%e8%b7%9f%e5%9b%a24%e5%a4%a9%e8%8a%b1%e4%ba%861680%ef%bc%8c%e9%93%b6%e6%9d%8f%e6%9d%91%e9%87%91%e5%8f%b6%e8%90%bd%e6%bb%a1%e5%b0%8f%e9%99%a2%ef%bc%8c%e8%8a%b1.html)
@@ -2270,7 +2266,11 @@
 - [佳帮手可旋转刀架筷子笼实测：菜刀筷子勺子一台收，沥水不发霉，厨房台面瞬间清爽](https://laobaixingbanshi.com/wanle/%e4%bd%b3%e5%b8%ae%e6%89%8b%e5%8f%af%e6%97%8b%e8%bd%ac%e5%88%80%e6%9e%b6%e7%ad%b7%e5%ad%90%e7%ac%bc%e5%ae%9e%e6%b5%8b%ef%bc%9a%e8%8f%9c%e5%88%80%e7%ad%b7%e5%ad%90%e5%8b%ba%e5%ad%90%e4%b8%80%e5%8f%b0.html)
 - [蒙牛奶皮子酸奶135g*12杯实测：上面一层奶皮稠到挂勺，2块6一杯比便利店省一半](https://laobaixingbanshi.com/wanle/%e8%92%99%e7%89%9b%e5%a5%b6%e7%9a%ae%e5%ad%90%e9%85%b8%e5%a5%b6135g12%e6%9d%af%e5%ae%9e%e6%b5%8b%ef%bc%9a%e4%b8%8a%e9%9d%a2%e4%b8%80%e5%b1%82%e5%a5%b6%e7%9a%ae%e7%a8%a0%e5%88%b0%e6%8c%82%e5%8b%ba.html)
 - [木纤维不沾油洗碗布实测：温水一冲油就掉，不用洗洁精也能洗净，一块用多久？](https://laobaixingbanshi.com/wanle/%e6%9c%a8%e7%ba%a4%e7%bb%b4%e4%b8%8d%e6%b2%be%e6%b2%b9%e6%b4%97%e7%a2%97%e5%b8%83%e5%ae%9e%e6%b5%8b%ef%bc%9a%e6%b8%a9%e6%b0%b4%e4%b8%80%e5%86%b2%e6%b2%b9%e5%b0%b1%e6%8e%89%ef%bc%8c%e4%b8%8d%e7%94%a8.html)
-## 购物优惠（194篇）
+## 购物优惠（198篇）
+- [吴大嫂素三鲜水饺实测：800g40只39块9，立冬这锅我连煮三顿](https://laobaixingbanshi.com/wanle/%e5%90%b4%e5%a4%a7%e5%ab%82%e7%b4%a0%e4%b8%89%e9%b2%9c%e6%b0%b4%e9%a5%ba%e5%ae%9e%e6%b5%8b%ef%bc%9a800g40%e5%8f%aa39%e5%9d%979%ef%bc%8c%e7%ab%8b%e5%86%ac%e8%bf%99%e9%94%85%e6%88%91%e8%bf%9e%e7%85%ae.html)
+- [百乐P500金标笔实测：3支29块16，学生党为什么死磕这支笔](https://laobaixingbanshi.com/wanle/%e7%99%be%e4%b9%90p500%e9%87%91%e6%a0%87%e7%ac%94%e5%ae%9e%e6%b5%8b%ef%bc%9a3%e6%94%af29%e5%9d%9716%ef%bc%8c%e5%ad%a6%e7%94%9f%e5%85%9a%e4%b8%ba%e4%bb%80%e4%b9%88%e6%ad%bb%e7%a3%95%e8%bf%99%e6%94%af.html)
+- [卡斐乐三合一数据线实测：28块4，一根顶三根，出差终于不缠三头](https://laobaixingbanshi.com/wanle/%e5%8d%a1%e6%96%90%e4%b9%90%e4%b8%89%e5%90%88%e4%b8%80%e6%95%b0%e6%8d%ae%e7%ba%bf%e5%ae%9e%e6%b5%8b%ef%bc%9a28%e5%9d%974%ef%bc%8c%e4%b8%80%e6%a0%b9%e9%a1%b6%e4%b8%89%e6%a0%b9%ef%bc%8c%e5%87%ba.html)
+- [绿之源除湿袋实测：8块5一袋，衣柜挂两周接了小半袋水](https://laobaixingbanshi.com/wanle/%e7%bb%bf%e4%b9%8b%e6%ba%90%e9%99%a4%e6%b9%bf%e8%a2%8b%e5%ae%9e%e6%b5%8b%ef%bc%9a8%e5%9d%975%e4%b8%80%e8%a2%8b%ef%bc%8c%e8%a1%a3%e6%9f%9c%e6%8c%82%e4%b8%a4%e5%91%a8%e6%8e%a5%e4%ba%86%e5%b0%8f%e5%8d%8a.html)
 
 - [妙洁免刀撕PE保鲜膜160米实测：点断式不用找头撕，微波炉冰箱食品级，一卷到底能用多久？](https://laobaixingbanshi.com/wanle/%e5%a6%99%e6%b4%81%e5%85%8d%e5%88%80%e6%92%95pe%e4%bf%9d%e9%b2%9c%e8%86%9c160%e7%b1%b3%e5%ae%9e%e6%b5%8b%ef%bc%9a%e7%82%b9%e6%96%ad%e5%bc%8f%e4%b8%8d%e7%94%a8%e6%89%be%e5%a4%b4%e6%92%95%ef%bc%8c.html)
 - [苏泊尔绞肉机家用小型实测：电动打蒜泥绞肉馅，做宝宝辅食洗起来麻烦吗？](https://laobaixingbanshi.com/wanle/%e8%8b%8f%e6%b3%8a%e5%b0%94%e7%bb%9e%e8%82%89%e6%9c%ba%e5%ae%b6%e7%94%a8%e5%b0%8f%e5%9e%8b%e5%ae%9e%e6%b5%8b%ef%bc%9a%e7%94%b5%e5%8a%a8%e6%89%93%e8%92%9c%e6%b3%a5%e7%bb%9e%e8%82%89%e9%a6%85%ef%bc%8c.html)
@@ -3041,12 +3041,12 @@
 - [爆脾气生炸鸡架外卖优惠力度最大的套餐是哪个？大块鸡腿肉（半斤）兑换券15.40元亲测最划算](https://laobaixingbanshi.com/wanle/%e7%88%86%e8%84%be%e6%b0%94%e7%94%9f%e7%82%b8%e9%b8%a1%e6%9e%b6%e5%a4%96%e5%8d%96%e4%bc%98%e6%83%a0%e5%8a%9b%e5%ba%a6%e6%9c%80%e5%a4%a7%e7%9a%84%e5%a5%97%e9%a4%90%e6%98%af%e5%93%aa%e4%b8%aa%ef%bc%9f.html)
 - [美仑酒店2晚+环门票团购攻略，1748.00元入园，比现场买省42%](https://laobaixingbanshi.com/wanle/%e7%be%8e%e4%bb%91%e9%85%92%e5%ba%972%e6%99%9a%e7%8e%af%e9%97%a8%e7%a5%a8%e5%9b%a2%e8%b4%ad%e6%94%bb%e7%95%a5%ef%bc%8c1748-00%e5%85%83%e5%85%a5%e5%9b%ad%ef%bc%8c%e6%af%94%e7%8e%b0%e5%9c%ba%e4%b9%b0.html)
 - [半天妖烤鱼团购划算吗？【口味升级】新品孜然凌波73.00元实测，比门店便宜32元](https://laobaixingbanshi.com/wanle/%e5%8d%8a%e5%a4%a9%e5%a6%96%e7%83%a4%e9%b1%bc%e5%9b%a2%e8%b4%ad%e5%88%92%e7%ae%97%e5%90%97%ef%bc%9f%e3%80%90%e5%8f%a3%e5%91%b3%e5%8d%87%e7%ba%a7%e3%80%91%e6%96%b0%e5%93%81%e5%ad%9c%e7%84%b6%e5%87%8c.html)
+- [面试求职自我介绍范文（应届生/跳槽/新员工入职通用，含3分钟与1分钟版本）Word下载](https://laobaixingbanshi.com/wenku/%e9%9d%a2%e8%af%95%e6%b1%82%e8%81%8c%e8%87%aa%e6%88%91%e4%bb%8b%e7%bb%8d%e8%8c%83%e6%96%87%ef%bc%88%e5%ba%94%e5%b1%8a%e7%94%9f-%e8%b7%b3%e6%a7%bd-%e6%96%b0%e5%91%98%e5%b7%a5%e5%85%a5%e8%81%8c%e9%80%9a.html)
+- [标准辞职信模板（个人原因/回老家/转行通用，含30天提前通知与交接条款）Word下载](https://laobaixingbanshi.com/wenku/%e6%a0%87%e5%87%86%e8%be%9e%e8%81%8c%e4%bf%a1%e6%a8%a1%e6%9d%bf%ef%bc%88%e4%b8%aa%e4%ba%ba%e5%8e%9f%e5%9b%a0-%e5%9b%9e%e8%80%81%e5%ae%b6-%e8%bd%ac%e8%a1%8c%e9%80%9a%e7%94%a8%ef%bc%8c%e5%90%ab30.html)
+- [离职证明范本（解除劳动合同证明，含社保转移与竞业限制说明，可直接填空）Word下载](https://laobaixingbanshi.com/wenku/%e7%a6%bb%e8%81%8c%e8%af%81%e6%98%8e%e8%8c%83%e6%9c%ac%ef%bc%88%e8%a7%a3%e9%99%a4%e5%8a%b3%e5%8a%a8%e5%90%88%e5%90%8c%e8%af%81%e6%98%8e%ef%bc%8c%e5%90%ab%e7%a4%be%e4%bf%9d%e8%bd%ac%e7%a7%bb%e4%b8%8e.html)
 ## 知识文库（560篇）
 - [员工手册模板（通用完整版）Word下载：试用期/考勤/休假/保密条款一次写全](https://laobaixingbanshi.com/wenku/%e5%91%98%e5%b7%a5%e6%89%8b%e5%86%8c%e6%a8%a1%e6%9d%bf%ef%bc%88%e9%80%9a%e7%94%a8%e5%ae%8c%e6%95%b4%e7%89%88%ef%bc%89word%e4%b8%8b%e8%bd%bd%ef%bc%9a%e8%af%95%e7%94%a8%e6%9c%9f-%e8%80%83%e5%8b%a4.html)
 - [安全生产事故应急预案模板（通用完整版）Word下载：火灾/触电/有限空间处置流程齐全](https://laobaixingbanshi.com/wenku/%e5%ae%89%e5%85%a8%e7%94%9f%e4%ba%a7%e4%ba%8b%e6%95%85%e5%ba%94%e6%80%a5%e9%a2%84%e6%a1%88%e6%a8%a1%e6%9d%bf%ef%bc%88%e9%80%9a%e7%94%a8%e5%ae%8c%e6%95%b4%e7%89%88%ef%bc%89word%e4%b8%8b%e8%bd%bd.html)
-- [标准辞职信模板（个人原因/回老家/转行通用，含30天提前通知与交接条款）Word下载](https://laobaixingbanshi.com/wenku/%e6%a0%87%e5%87%86%e8%be%9e%e8%81%8c%e4%bf%a1%e6%a8%a1%e6%9d%bf%ef%bc%88%e4%b8%aa%e4%ba%ba%e5%8e%9f%e5%9b%a0-%e5%9b%9e%e8%80%81%e5%ae%b6-%e8%bd%ac%e8%a1%8c%e9%80%9a%e7%94%a8%ef%bc%8c%e5%90%ab30.html)
-- [离职证明范本（解除劳动合同证明，含社保转移与竞业限制说明，可直接填空）Word下载](https://laobaixingbanshi.com/wenku/%e7%a6%bb%e8%81%8c%e8%af%81%e6%98%8e%e8%8c%83%e6%9c%ac%ef%bc%88%e8%a7%a3%e9%99%a4%e5%8a%b3%e5%8a%a8%e5%90%88%e5%90%8c%e8%af%81%e6%98%8e%ef%bc%8c%e5%90%ab%e7%a4%be%e4%bf%9d%e8%bd%ac%e7%a7%bb%e4%b8%8e.html)
-## 知识文库（558篇）
 
 - [初中九年级化学上册期中测试卷（人教版，含答案与详细解析）Word下载](https://laobaixingbanshi.com/wenku/%e5%88%9d%e4%b8%ad%e4%b9%9d%e5%b9%b4%e7%ba%a7%e5%8c%96%e5%ad%a6%e4%b8%8a%e5%86%8c%e6%9c%9f%e4%b8%ad%e6%b5%8b%e8%af%95%e5%8d%b7%ef%bc%88%e4%ba%ba%e6%95%99%e7%89%88%ef%bc%8c%e5%90%ab%e7%ad%94%e6%a1%88.html)
 - [初中八年级数学上册期中测试卷（人教版，含答案与详细解析）Word下载](https://laobaixingbanshi.com/wenku/%e5%88%9d%e4%b8%ad%e5%85%ab%e5%b9%b4%e7%ba%a7%e6%95%b0%e5%ad%a6%e4%b8%8a%e5%86%8c%e6%9c%9f%e4%b8%ad%e6%b5%8b%e8%af%95%e5%8d%b7%ef%bc%88%e4%ba%ba%e6%95%99%e7%89%88%ef%bc%8c%e5%90%ab%e7%ad%94%e6%a1%88.html)
@@ -4165,14 +4165,14 @@
 
 - [倡议书范文大全（学雷锋/光盘行动/文明出行/垃圾分类多场景）Word下载](https://laobaixingbanshi.com/wenku/%e5%80%a1%e8%ae%ae%e4%b9%a6%e8%8c%83%e6%96%87%e5%a4%a7%e5%85%a8%ef%bc%88%e5%ad%a6%e9%9b%b7%e9%94%8b-%e5%85%89%e7%9b%98%e8%a1%8c%e5%8a%a8-%e6%96%87%e6%98%8e%e5%87%ba%e8%a1%8c-%e5%9e%83%e5%9c%be.html)
 - [表扬信感谢信范文（单位表彰/感谢客户医护老师多场景）Word下载](https://laobaixingbanshi.com/wenku/%e8%a1%a8%e6%89%ac%e4%bf%a1%e6%84%9f%e8%b0%a2%e4%bf%a1%e8%8c%83%e6%96%87%ef%bc%88%e5%8d%95%e4%bd%8d%e8%a1%a8%e5%bd%b0-%e6%84%9f%e8%b0%a2%e5%ae%a2%e6%88%b7%e5%8c%bb%e6%8a%a4%e8%80%81%e5%b8%88%e5%a4%9a.html)
-## 法律合同（159篇）
-- [直播带货合作协议范本 Word下载：佣金结算/售后责任/数据争议条款齐全](https://laobaixingbanshi.com/falv/%e7%9b%b4%e6%92%ad%e5%b8%a6%e8%b4%a7%e5%90%88%e4%bd%9c%e5%8d%8f%e8%ae%ae%e8%8c%83%e6%9c%ac-word%e4%b8%8b%e8%bd%bd%ef%bc%9a%e4%bd%a3%e9%87%91%e7%bb%93%e7%ae%97-%e5%94%ae%e5%90%8e%e8%b4%a3%e4%bb%bb.html)
-- [商标使用许可合同范本 Word下载：质量监督/备案/续展条款齐全](https://laobaixingbanshi.com/falv/%e5%95%86%e6%a0%87%e4%bd%bf%e7%94%a8%e8%ae%b8%e5%8f%af%e5%90%88%e5%90%8c%e8%8c%83%e6%9c%ac-word%e4%b8%8b%e8%bd%bd%ef%bc%9a%e8%b4%a8%e9%87%8f%e7%9b%91%e7%9d%a3-%e5%a4%87%e6%a1%88-%e7%bb%ad%e5%b1%95.html)
+- [在职证明收入证明模板范文（贷款/签证/入职通用版）Word下载](https://laobaixingbanshi.com/wenku/%e5%9c%a8%e8%81%8c%e8%af%81%e6%98%8e%e6%94%b6%e5%85%a5%e8%af%81%e6%98%8e%e6%a8%a1%e6%9d%bf%e8%8c%83%e6%96%87%ef%bc%88%e8%b4%b7%e6%ac%be-%e7%ad%be%e8%af%81-%e5%85%a5%e8%81%8c%e9%80%9a%e7%94%a8%e7%89%88.html)
 - [劳动合同书范本（固定期限/试用期/社保/加班工资条款齐全，可直接填空使用）Word下载](https://laobaixingbanshi.com/falv/%e5%8a%b3%e5%8a%a8%e5%90%88%e5%90%8c%e4%b9%a6%e8%8c%83%e6%9c%ac%ef%bc%88%e5%9b%ba%e5%ae%9a%e6%9c%9f%e9%99%90-%e8%af%95%e7%94%a8%e6%9c%9f-%e7%a4%be%e4%bf%9d-%e5%8a%a0%e7%8f%ad%e5%b7%a5%e8%b5%84.html)
 - [家庭居室装饰装修工程施工合同范本（含预算付款、隐蔽工程验收、质保与防坑条款）Word下载](https://laobaixingbanshi.com/falv/%e5%ae%b6%e5%ba%ad%e5%b1%85%e5%ae%a4%e8%a3%85%e9%a5%b0%e8%a3%85%e4%bf%ae%e5%b7%a5%e7%a8%8b%e6%96%bd%e5%b7%a5%e5%90%88%e5%90%8c%e8%8c%83%e6%9c%ac%ef%bc%88%e5%90%ab%e9%a2%84%e7%ae%97%e4%bb%98%e6%ac%be.html)
 - [房屋租赁合同范本（个人租房通用，含押金、租金、维修、退租与防坑条款）Word下载](https://laobaixingbanshi.com/falv/%e6%88%bf%e5%b1%8b%e7%a7%9f%e8%b5%81%e5%90%88%e5%90%8c%e8%8c%83%e6%9c%ac%ef%bc%88%e4%b8%aa%e4%ba%ba%e7%a7%9f%e6%88%bf%e9%80%9a%e7%94%a8%ef%bc%8c%e5%90%ab%e6%8a%bc%e9%87%91%e3%80%81%e7%a7%9f%e9%87%91.html)
 - [个人借款合同范本（民间借贷标准版，含利息、还款、逾期违约金与担保条款）Word下载](https://laobaixingbanshi.com/falv/%e4%b8%aa%e4%ba%ba%e5%80%9f%e6%ac%be%e5%90%88%e5%90%8c%e8%8c%83%e6%9c%ac%ef%bc%88%e6%b0%91%e9%97%b4%e5%80%9f%e8%b4%b7%e6%a0%87%e5%87%86%e7%89%88%ef%bc%8c%e5%90%ab%e5%88%a9%e6%81%af%e3%80%81%e8%bf%98.html)
-## 法律合同（157篇）
+## 法律合同（159篇）
+- [直播带货合作协议范本 Word下载：佣金结算/售后责任/数据争议条款齐全](https://laobaixingbanshi.com/falv/%e7%9b%b4%e6%92%ad%e5%b8%a6%e8%b4%a7%e5%90%88%e4%bd%9c%e5%8d%8f%e8%ae%ae%e8%8c%83%e6%9c%ac-word%e4%b8%8b%e8%bd%bd%ef%bc%9a%e4%bd%a3%e9%87%91%e7%bb%93%e7%ae%97-%e5%94%ae%e5%90%8e%e8%b4%a3%e4%bb%bb.html)
+- [商标使用许可合同范本 Word下载：质量监督/备案/续展条款齐全](https://laobaixingbanshi.com/falv/%e5%95%86%e6%a0%87%e4%bd%bf%e7%94%a8%e8%ae%b8%e5%8f%af%e5%90%88%e5%90%8c%e8%8c%83%e6%9c%ac-word%e4%b8%8b%e8%bd%bd%ef%bc%9a%e8%b4%a8%e9%87%8f%e7%9b%91%e7%9d%a3-%e5%a4%87%e6%a1%88-%e7%bb%ad%e5%b1%95.html)
 
 - [民事起诉状范本（民间借贷/买卖合同/交通事故纠纷通用，含证据清单）Word下载](https://laobaixingbanshi.com/falv/minshi-qisuzhuang.html)
 - [赡养老人协议书范本（多子女家庭通用，含轮养/赡养费/医药费分担条款）Word下载](https://laobaixingbanshi.com/falv/shanyang-xieyi.html)
@@ -4488,16 +4488,16 @@
 - [个人借款合同标准模板（含利息约定）Word下载](https://laobaixingbanshi.com/%e4%b8%aa%e4%ba%ba%e5%80%9f%e6%ac%be%e5%90%88%e5%90%8c%e6%a0%87%e5%87%86%e6%a8%a1%e6%9d%bf%ef%bc%88%e5%90%ab%e5%88%a9%e6%81%af%e7%ba%a6%e5%ae%9a%ef%bc%89word%e4%b8%8b%e8%bd%bd/)
 
 
-## 职业考证（180篇）
-- [中级经济师《工商管理》100题（含答案与解析，2027备考刷题）Word下载](https://laobaixingbanshi.com/kaozheng/%e4%b8%ad%e7%ba%a7%e7%bb%8f%e6%b5%8e%e5%b8%88%e3%80%8a%e5%b7%a5%e5%95%86%e7%ae%a1%e7%90%86%e3%80%8b100%e9%a2%98%ef%bc%88%e5%90%ab%e7%ad%94%e6%a1%88%e4%b8%8e%e8%a7%a3%e6%9e%90%ef%bc%8c2027%e5%a4%87.html)
-- [项目管理100题（一级建造师《建设工程项目管理》科目，含答案与解析，2027备考刷题）Word下载](https://laobaixingbanshi.com/kaozheng/%e9%a1%b9%e7%9b%ae%e7%ae%a1%e7%90%86100%e9%a2%98%ef%bc%88%e4%b8%80%e7%ba%a7%e5%bb%ba%e9%80%a0%e5%b8%88%e3%80%8a%e5%bb%ba%e8%ae%be%e5%b7%a5%e7%a8%8b%e9%a1%b9%e7%9b%ae%e7%ae%a1%e7%90%86%e3%80%8b.html)
+
 - [店铺门面转让协议范本（含转让费+押金+债权债务厘清）Word下载](https://laobaixingbanshi.com/falv/%e5%ba%97%e9%93%ba%e9%97%a8%e9%9d%a2%e8%bd%ac%e8%ae%a9%e5%8d%8f%e8%ae%ae%e8%8c%83%e6%9c%ac%ef%bc%88%e5%90%ab%e8%bd%ac%e8%ae%a9%e8%b4%b9%e6%8a%bc%e9%87%91%e5%80%ba%e6%9d%83%e5%80%ba%e5%8a%a1%e5%8e%98.html)
 - [房屋赠与合同范本（父母赠与子女房产，含过户与撤销条款）Word下载](https://laobaixingbanshi.com/falv/%e6%88%bf%e5%b1%8b%e8%b5%a0%e4%b8%8e%e5%90%88%e5%90%8c%e8%8c%83%e6%9c%ac%ef%bc%88%e7%88%b6%e6%af%8d%e8%b5%a0%e4%b8%8e%e5%ad%90%e5%a5%b3%e6%88%bf%e4%ba%a7%ef%bc%8c%e5%90%ab%e8%bf%87%e6%88%b7%e4%b8%8e.html)
 - [初级经济师《经济基础知识》100题（含答案与解析，2027备考刷题）Word下载](https://laobaixingbanshi.com/kaozheng/%e5%88%9d%e7%ba%a7%e7%bb%8f%e6%b5%8e%e5%b8%88%e3%80%8a%e7%bb%8f%e6%b5%8e%e5%9f%ba%e7%a1%80%e7%9f%a5%e8%af%86%e3%80%8b100%e9%a2%98%ef%bc%88%e5%90%ab%e7%ad%94%e6%a1%88%e4%b8%8e%e8%a7%a3%e6%9e%90.html)
 - [银行从业《法律法规与综合能力》100题（含答案与解析，可打印刷题）Word下载](https://laobaixingbanshi.com/kaozheng/%e9%93%b6%e8%a1%8c%e4%bb%8e%e4%b8%9a%e3%80%8a%e6%b3%95%e5%be%8b%e6%b3%95%e8%a7%84%e4%b8%8e%e7%bb%bc%e5%90%88%e8%83%bd%e5%8a%9b%e3%80%8b100%e9%a2%98%ef%bc%88%e5%90%ab%e7%ad%94%e6%a1%88%e4%b8%8e.html)
 - [教师资格证《综合素质（中学）》100题（含答案与解析，2027备考刷题）Word下载](https://laobaixingbanshi.com/kaozheng/%e6%95%99%e5%b8%88%e8%b5%84%e6%a0%bc%e8%af%81%e3%80%8a%e7%bb%bc%e5%90%88%e7%b4%a0%e8%b4%a8%ef%bc%88%e4%b8%ad%e5%ad%a6%ef%bc%89%e3%80%8b100%e9%a2%98%ef%bc%88%e5%90%ab%e7%ad%94%e6%a1%88%e4%b8%8e.html)
 - [导游资格证《导游业务》100题（含答案与解析，2027备考刷题）Word下载](https://laobaixingbanshi.com/kaozheng/%e5%af%bc%e6%b8%b8%e8%b5%84%e6%a0%bc%e8%af%81%e3%80%8a%e5%af%bc%e6%b8%b8%e4%b8%9a%e5%8a%a1%e3%80%8b100%e9%a2%98%ef%bc%88%e5%90%ab%e7%ad%94%e6%a1%88%e4%b8%8e%e8%a7%a3%e6%9e%90%ef%bc%8c2027%e5%a4%87.html)
-## 职业考证（178篇）
+## 职业考证（180篇）
+- [中级经济师《工商管理》100题（含答案与解析，2027备考刷题）Word下载](https://laobaixingbanshi.com/kaozheng/%e4%b8%ad%e7%ba%a7%e7%bb%8f%e6%b5%8e%e5%b8%88%e3%80%8a%e5%b7%a5%e5%95%86%e7%ae%a1%e7%90%86%e3%80%8b100%e9%a2%98%ef%bc%88%e5%90%ab%e7%ad%94%e6%a1%88%e4%b8%8e%e8%a7%a3%e6%9e%90%ef%bc%8c2027%e5%a4%87.html)
+- [项目管理100题（一级建造师《建设工程项目管理》科目，含答案与解析，2027备考刷题）Word下载](https://laobaixingbanshi.com/kaozheng/%e9%a1%b9%e7%9b%ae%e7%ae%a1%e7%90%86100%e9%a2%98%ef%bc%88%e4%b8%80%e7%ba%a7%e5%bb%ba%e9%80%a0%e5%b8%88%e3%80%8a%e5%bb%ba%e8%ae%be%e5%b7%a5%e7%a8%8b%e9%a1%b9%e7%9b%ae%e7%ae%a1%e7%90%86%e3%80%8b.html)
 
 - [初级会计职称《初级会计实务》100题（含答案与解析，可打印刷题）Word下载](https://laobaixingbanshi.com/kaozheng/chuji-kuaiji-shiwu-100ti.html)
 - [一级建造师《建设工程经济》100题（含答案与解析，2027备考刷题）Word下载](https://laobaixingbanshi.com/kaozheng/yijian-jingji-100ti.html)
@@ -4851,8 +4851,7 @@
 - [2026年教师资格证笔试100题（综合素质）附答案解析](https://laobaixingbanshi.com/2026%e5%b9%b4%e6%95%99%e5%b8%88%e8%b5%84%e6%a0%bc%e8%af%81%e7%ac%94%e8%af%95100%e9%a2%98%ef%bc%88%e7%bb%bc%e5%90%88%e7%b4%a0%e8%b4%a8%ef%bc%89%e9%99%84%e7%ad%94%e6%a1%88%e8%a7%a3%e6%9e%90/)
 
 - [2026年初级会计职称考试100题（经济法基础）](https://laobaixingbanshi.com/2026%e5%b9%b4%e5%88%9d%e7%ba%a7%e4%bc%9a%e8%ae%a1%e8%81%8c%e7%a7%b0%e8%80%83%e8%af%95100%e9%a2%98%ef%bc%88%e7%bb%8f%e6%b5%8e%e6%b3%95%e5%9f%ba%e7%a1%80%ef%bc%89/)
-## 创业办事（141篇）
-- [电子发票（数电票）怎么开？2026最新流程：登录电子税务局四步开好，不用买税控盘](https://laobaixingbanshi.com/chuangye/%e7%94%b5%e5%ad%90%e5%8f%91%e7%a5%a8%ef%bc%88%e6%95%b0%e7%94%b5%e7%a5%a8%ef%bc%89%e6%80%8e%e4%b9%88%e5%bc%80%ef%bc%9f2026%e6%9c%80%e6%96%b0%e6%b5%81%e7%a8%8b%ef%bc%9a%e7%99%bb%e5%bd%95%e7%94%b5.html)
+
 - [2026年事业单位公共基础知识100题（法律部分）](https://laobaixingbanshi.com/2026%e5%b9%b4%e4%ba%8b%e4%b8%9a%e5%8d%95%e4%bd%8d%e5%85%ac%e5%85%b1%e5%9f%ba%e7%a1%80%e7%9f%a5%e8%af%86100%e9%a2%98%ef%bc%88%e6%b3%95%e5%be%8b%e9%83%a8%e5%88%86%ef%bc%89/)
 
 
@@ -4861,7 +4860,8 @@
 - [2026年小学教师资格证《教育教学知识与能力》100题（含答案解析）Word下载](https://laobaixingbanshi.com/kaozheng/2026%e5%b9%b4%e5%b0%8f%e5%ad%a6%e6%95%99%e5%b8%88%e8%b5%84%e6%a0%bc%e8%af%81%e3%80%8a%e6%95%99%e8%82%b2%e6%95%99%e5%ad%a6%e7%9f%a5%e8%af%86%e4%b8%8e%e8%83%bd%e5%8a%9b%e3%80%8b100%e9%a2%98%ef%bc%88.html)
 - [个体工商户营业执照注销怎么办理？2026最新流程：先清税再销照，简易注销和普通注销区别说清楚](https://laobaixingbanshi.com/chuangye/%e4%b8%aa%e4%bd%93%e5%b7%a5%e5%95%86%e6%88%b7%e8%90%a5%e4%b8%9a%e6%89%a7%e7%85%a7%e6%b3%a8%e9%94%80%e6%80%8e%e4%b9%88%e5%8a%9e%e7%90%86%ef%bc%9f2026%e6%9c%80%e6%96%b0%e6%b5%81%e7%a8%8b%ef%bc%9a.html)
 - [小规模纳税人增值税怎么申报？2026最新流程：季报、零申报、免税额度一次说清楚](https://laobaixingbanshi.com/chuangye/%e5%b0%8f%e8%a7%84%e6%a8%a1%e7%ba%b3%e7%a8%8e%e4%ba%ba%e5%a2%9e%e5%80%bc%e7%a8%8e%e6%80%8e%e4%b9%88%e7%94%b3%e6%8a%a5%ef%bc%9f2026%e6%9c%80%e6%96%b0%e6%b5%81%e7%a8%8b%ef%bc%9a%e5%ad%a3%e6%8a%a5.html)
-## 创业办事（140篇）
+## 创业办事（141篇）
+- [电子发票（数电票）怎么开？2026最新流程：登录电子税务局四步开好，不用买税控盘](https://laobaixingbanshi.com/chuangye/%e7%94%b5%e5%ad%90%e5%8f%91%e7%a5%a8%ef%bc%88%e6%95%b0%e7%94%b5%e7%a5%a8%ef%bc%89%e6%80%8e%e4%b9%88%e5%bc%80%ef%bc%9f2026%e6%9c%80%e6%96%b0%e6%b5%81%e7%a8%8b%ef%bc%9a%e7%99%bb%e5%bd%95%e7%94%b5.html)
 
 - [烟草专卖零售许可证怎么办理？开个小卖铺卖烟需要哪些条件和材料？](https://laobaixingbanshi.com/chuangye/%e7%83%9f%e8%8d%89%e4%b8%93%e5%8d%96%e9%9b%b6%e5%94%ae%e8%ae%b8%e5%8f%af%e8%af%81%e6%80%8e%e4%b9%88%e5%8a%9e%e7%90%86%ef%bc%9f%e5%bc%80%e4%b8%aa%e5%b0%8f%e5%8d%96%e9%93%ba%e5%8d%96%e7%83%9f%e9%9c%80.html)
 - [营业执照年报公示怎么报？个体户与企业网上申报全流程（逾期列入经营异常）](https://laobaixingbanshi.com/chuangye/%e8%90%a5%e4%b8%9a%e6%89%a7%e7%85%a7%e5%b9%b4%e6%8a%a5%e5%85%ac%e7%a4%ba%e6%80%8e%e4%b9%88%e6%8a%a5%ef%bc%9f%e4%b8%aa%e4%bd%93%e6%88%b7%e4%b8%8e%e4%bc%81%e4%b8%9a%e7%bd%91%e4%b8%8a%e7%94%b3%e6%8a%a5.html)
