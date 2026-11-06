@@ -2664,6 +2664,9 @@
 - [51.3元里兜小黑核混合猫砂到底好不好用？两只猫铲屎一个月，除臭结团实测](https://laobaixingbanshi.com/?p=6774)
 - [5块1的网红棉拖鞋到底能不能穿？16万人买过，上脚一周说说真实感受](https://laobaixingbanshi.com/?p=6775)
 ## 本地生活·美团（185篇）
+- [热门城市酒店优惠券领取方法，金隅凤山酒店1晚美团团购立省433元](https://laobaixingbanshi.com/wanle/%e7%83%ad%e9%97%a8%e5%9f%8e%e5%b8%82%e9%85%92%e5%ba%97%e4%bc%98%e6%83%a0%e5%88%b8%e9%a2%86%e5%8f%96%e6%96%b9%e6%b3%95%ef%bc%8c%e9%87%91%e9%9a%85%e5%87%a4%e5%b1%b1%e9%85%92%e5%ba%971%e6%99%9a%e7%be%8e.html)
+- [茶百道优惠券怎么领？固体杨枝甘露（限时价）美团团购15.90元](https://laobaixingbanshi.com/wanle/%e8%8c%b6%e7%99%be%e9%81%93%e4%bc%98%e6%83%a0%e5%88%b8%e6%80%8e%e4%b9%88%e9%a2%86%ef%bc%9f%e5%9b%ba%e4%bd%93%e6%9d%a8%e6%9e%9d%e7%94%98%e9%9c%b2%ef%bc%88%e9%99%90%e6%97%b6%e4%bb%b7%ef%bc%89%e7%be%8e.html)
+- [怎么领瑞幸咖啡的优惠券？全冰小黄油美式兑换券·1团购攻略，13.10元吃24.00元套餐](https://laobaixingbanshi.com/wanle/%e6%80%8e%e4%b9%88%e9%a2%86%e7%91%9e%e5%b9%b8%e5%92%96%e5%95%a1%e7%9a%84%e4%bc%98%e6%83%a0%e5%88%b8%ef%bc%9f%e5%85%a8%e5%86%b0%e5%b0%8f%e9%bb%84%e6%b2%b9%e7%be%8e%e5%bc%8f%e5%85%91%e6%8d%a2%e5%88%b8.html)
 - [OMEGA欧米伽团购划算吗？OMEGA欧米伽手表翻新0.01元实测，比门店便宜38元元](https://laobaixingbanshi.com/wanle/omega%e6%ac%a7%e7%b1%b3%e4%bc%bd%e5%9b%a2%e8%b4%ad%e5%88%92%e7%ae%97%e5%90%97%ef%bc%9fomega%e6%ac%a7%e7%b1%b3%e4%bc%bd%e6%89%8b%e8%a1%a8%e7%bf%bb%e6%96%b00-01%e5%85%83%e5%ae%9e%e6%b5%8b%ef%bc%8c.html)
 - [外卖优惠券哪里领？蜜雪冰城黑糖珍珠鲜牛乳兑换券·1美团团购7.90元，全国通用](https://laobaixingbanshi.com/wanle/%e5%a4%96%e5%8d%96%e4%bc%98%e6%83%a0%e5%88%b8%e5%93%aa%e9%87%8c%e9%a2%86%ef%bc%9f%e8%9c%9c%e9%9b%aa%e5%86%b0%e5%9f%8e%e9%bb%91%e7%b3%96%e7%8f%8d%e7%8f%a0%e9%b2%9c%e7%89%9b%e4%b9%b3%e5%85%91%e6%8d%a2.html)
 - [怎么领金秋美景&amp;北京热的门票优惠券？美团团购75.00元，随时退](https://laobaixingbanshi.com/wanle/%e6%80%8e%e4%b9%88%e9%a2%86%e9%87%91%e7%a7%8b%e7%be%8e%e6%99%af%e5%8c%97%e4%ba%ac%e7%83%ad%e7%9a%84%e9%97%a8%e7%a5%a8%e4%bc%98%e6%83%a0%e5%88%b8%ef%bc%9f%e7%be%8e%e5%9b%a2%e5%9b%a2%e8%b4%ad75-00.html)
@@ -4861,6 +4864,7 @@
 - [个体工商户营业执照注销怎么办理？2026最新流程：先清税再销照，简易注销和普通注销区别说清楚](https://laobaixingbanshi.com/chuangye/%e4%b8%aa%e4%bd%93%e5%b7%a5%e5%95%86%e6%88%b7%e8%90%a5%e4%b8%9a%e6%89%a7%e7%85%a7%e6%b3%a8%e9%94%80%e6%80%8e%e4%b9%88%e5%8a%9e%e7%90%86%ef%bc%9f2026%e6%9c%80%e6%96%b0%e6%b5%81%e7%a8%8b%ef%bc%9a.html)
 - [小规模纳税人增值税怎么申报？2026最新流程：季报、零申报、免税额度一次说清楚](https://laobaixingbanshi.com/chuangye/%e5%b0%8f%e8%a7%84%e6%a8%a1%e7%ba%b3%e7%a8%8e%e4%ba%ba%e5%a2%9e%e5%80%bc%e7%a8%8e%e6%80%8e%e4%b9%88%e7%94%b3%e6%8a%a5%ef%bc%9f2026%e6%9c%80%e6%96%b0%e6%b5%81%e7%a8%8b%ef%bc%9a%e5%ad%a3%e6%8a%a5.html)
 ## 创业办事（141篇）
+- [跑三趟才办下来的营业执照：个体户注册全流程，我把踩过的坑都写下来了](https://laobaixingbanshi.com/chuangye/%e8%b7%91%e4%b8%89%e8%b6%9f%e6%89%8d%e5%8a%9e%e4%b8%8b%e6%9d%a5%e7%9a%84%e8%90%a5%e4%b8%9a%e6%89%a7%e7%85%a7%ef%bc%9a%e4%b8%aa%e4%bd%93%e6%88%b7%e6%b3%a8%e5%86%8c%e5%85%a8%e6%b5%81%e7%a8%8b%ef%bc%8c.html)
 - [电子发票（数电票）怎么开？2026最新流程：登录电子税务局四步开好，不用买税控盘](https://laobaixingbanshi.com/chuangye/%e7%94%b5%e5%ad%90%e5%8f%91%e7%a5%a8%ef%bc%88%e6%95%b0%e7%94%b5%e7%a5%a8%ef%bc%89%e6%80%8e%e4%b9%88%e5%bc%80%ef%bc%9f2026%e6%9c%80%e6%96%b0%e6%b5%81%e7%a8%8b%ef%bc%9a%e7%99%bb%e5%bd%95%e7%94%b5.html)
 
 - [烟草专卖零售许可证怎么办理？开个小卖铺卖烟需要哪些条件和材料？](https://laobaixingbanshi.com/chuangye/%e7%83%9f%e8%8d%89%e4%b8%93%e5%8d%96%e9%9b%b6%e5%94%ae%e8%ae%b8%e5%8f%af%e8%af%81%e6%80%8e%e4%b9%88%e5%8a%9e%e7%90%86%ef%bc%9f%e5%bc%80%e4%b8%aa%e5%b0%8f%e5%8d%96%e9%93%ba%e5%8d%96%e7%83%9f%e9%9c%80.html)
@@ -5305,6 +5309,7 @@
 - [失业保险金怎么领？2026最新条件和流程：被公司辞退能领多少，主动辞职能不能领，一次说清楚](https://laobaixingbanshi.com/shebao/%e5%a4%b1%e4%b8%9a%e4%bf%9d%e9%99%a9%e9%87%91%e6%80%8e%e4%b9%88%e9%a2%86%ef%bc%9f2026%e6%9c%80%e6%96%b0%e6%9d%a1%e4%bb%b6%e5%92%8c%e6%b5%81%e7%a8%8b%ef%bc%9a%e8%a2%ab%e5%85%ac%e5%8f%b8%e8%be%9e.html)
 - [医保个人账户家庭共济怎么绑定？2026最新流程：配偶父母子女共用，买药门诊一次讲清](https://laobaixingbanshi.com/shebao/%e5%8c%bb%e4%bf%9d%e4%b8%aa%e4%ba%ba%e8%b4%a6%e6%88%b7%e5%ae%b6%e5%ba%ad%e5%85%b1%e6%b5%8e%e6%80%8e%e4%b9%88%e7%bb%91%e5%ae%9a%ef%bc%9f2026%e6%9c%80%e6%96%b0%e6%b5%81%e7%a8%8b%ef%bc%9a%e9%85%8d.html)
 ## 社保医保（125篇）
+- [灵活就业自己交社保，到底选哪档？我按三个收入段算了笔账](https://laobaixingbanshi.com/shebao/%e7%81%b5%e6%b4%bb%e5%b0%b1%e4%b8%9a%e8%87%aa%e5%b7%b1%e4%ba%a4%e7%a4%be%e4%bf%9d%ef%bc%8c%e5%88%b0%e5%ba%95%e9%80%89%e5%93%aa%e6%a1%a3%ef%bc%9f%e6%88%91%e6%8c%89%e4%b8%89%e4%b8%aa%e6%94%b6%e5%85%a5.html)
 
 
 
