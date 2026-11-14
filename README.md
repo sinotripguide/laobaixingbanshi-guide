@@ -10,7 +10,18 @@
 
 
 
-## 招考就业（749篇）
+## 招考就业（760篇）
+- [施秉县民族中医院招5人：报名费100元，报的人不到3倍就直接面试](https://laobaixingbanshi.com/zhaokao/shibing-tcm-1115.html)
+- [我按公告日期把年龄算了一遍：贵阳消防第二批专职消防员11月14日开报](https://laobaixingbanshi.com/zhaokao/guiyang-fire-2-1115.html)
+- [气象部门招40名应届生，为什么非要盯住12月7日这个开报日？](https://laobaixingbanshi.com/zhaokao/gz-qixiang-2027-1115.html)
+- [50个助理岗看着多，硕士起步还招满即止：时珍学院这批适合谁](https://laobaixingbanshi.com/zhaokao/shizhen-50-1115.html)
+- [中专学历能报，卡的是中药师证：贵定宝山社区招1名中药师](https://laobaixingbanshi.com/zhaokao/guiding-tcm-1115.html)
+- [1个岗位、6天窗口：黔东南特检所招特种设备检验员，17日18点截](https://laobaixingbanshi.com/zhaokao/qdntjs-1115.html)
+- [11月12日起现场报名、21日笔试：普定公安辅警这三步别弄错](https://laobaixingbanshi.com/zhaokao/puding-police-1115.html)
+- [同样招辅警，凤冈要大专、网上报名还卡3:1，普定现场报名不收钱](https://laobaixingbanshi.com/zhaokao/fenggang-police-1115.html)
+- [没规培证，3年社区超声经验也能投？观山湖这个B超岗说清楚了](https://laobaixingbanshi.com/zhaokao/guanshanhu-bchao-1115.html)
+- [我帮邻居查了公益性岗位：女45男55才算大龄，2027年起门槛反而往下放](https://laobaixingbanshi.com/zhaokao/nanming-gongyi-1115.html)
+- [清镇中医院第三批编外招聘：现场报名只3天，11月16日开始](https://laobaixingbanshi.com/zhaokao/qingzhen-tcm-3-1115.html)
 - [思南县消防救援局第二批专职消防员：11月16日起现场报名，体测三项是硬门槛](https://laobaixingbanshi.com/zhaokao/sinan-fire-1114.html)
 - [锦屏县社会福利院招养老护理：25至40岁专科可报，试用期工资按八成发](https://laobaixingbanshi.com/zhaokao/jinping-fuli-1114.html)
 - [晴隆县招9名专职人民调解员：高中学历可报，到辖区司法所报名](https://laobaixingbanshi.com/zhaokao/qinglong-tiaojie-1114.html)
@@ -1202,7 +1213,14 @@
 - [兵马俑别光买票自己瞎看：提前订好讲解，一号坑那一排泥人终于看懂了](https://laobaixingbanshi.com/wanle/%e5%85%b5%e9%a9%ac%e4%bf%91%e5%88%ab%e5%85%89%e4%b9%b0%e7%a5%a8%e8%87%aa%e5%b7%b1%e7%9e%8e%e7%9c%8b%ef%bc%9a%e6%8f%90%e5%89%8d%e8%ae%a2%e5%a5%bd%e8%ae%b2%e8%a7%a3%ef%bc%8c%e4%b8%80%e5%8f%b7%e5%9d%91.html)
 - [在三亚瑞吉躺了三天没出门：推门就是泳池，娃玩到不肯回房间](https://laobaixingbanshi.com/wanle/%e5%9c%a8%e4%b8%89%e4%ba%9a%e7%91%9e%e5%90%89%e8%ba%ba%e4%ba%86%e4%b8%89%e5%a4%a9%e6%b2%a1%e5%87%ba%e9%97%a8%ef%bc%9a%e6%8e%a8%e9%97%a8%e5%b0%b1%e6%98%af%e6%b3%b3%e6%b1%a0%ef%bc%8c%e5%a8%83%e7%8e%a9.html)
 - [一年飞二十趟的人说句实话：同一张机票多比一家，能省出一顿火锅](https://laobaixingbanshi.com/wanle/%e4%b8%80%e5%b9%b4%e9%a3%9e%e4%ba%8c%e5%8d%81%e8%b6%9f%e7%9a%84%e4%ba%ba%e8%af%b4%e5%8f%a5%e5%ae%9e%e8%af%9d%ef%bc%9a%e5%90%8c%e4%b8%80%e5%bc%a0%e6%9c%ba%e7%a5%a8%e5%a4%9a%e6%af%94%e4%b8%80%e5%ae%b6.html)
-## 旅游酒店（623篇）
+## 旅游酒店（630篇）
+- [1180元的稻城亚丁5天团，我最想提醒的是高反和路边厕所](https://laobaixingbanshi.com/wanle/yading-5d-1115.html)
+- [138元的贵州2天：小七孔和西江苗寨挤在两天，累不累](https://laobaixingbanshi.com/wanle/guizhou-2d-1115.html)
+- [船票才是涠洲岛最大的坎：496元一日游把它绑进去了](https://laobaixingbanshi.com/wanle/weizhou-1d-1115.html)
+- [215元的武夷山一日游，竹筏和天游峰到底能不能都玩到？](https://laobaixingbanshi.com/wanle/wuyi-1d-1115.html)
+- [228元的梵净山一日游，金顶预约和索道票到底含不含？](https://laobaixingbanshi.com/wanle/fanjing-1d-1115.html)
+- [30元的黄果树扶梯票，什么人该买、什么人买了浪费](https://laobaixingbanshi.com/wanle/huangguoshu-futi-1115.html)
+- [640元住一晚云峰山温泉酒店，热海和和顺怎么串才不赶](https://laobaixingbanshi.com/wanle/tengchong-wenquan-1115.html)
 - [呼伦贝尔一日游600元：一天跑完草原，这笔钱花在哪我给你算清](https://laobaixingbanshi.com/wanle/hlbe-1day-1114.html)
 - [恩施5天纯玩1378元：大峡谷和屏山峡谷到底差在哪，值不值得都去](https://laobaixingbanshi.com/wanle/enshi-5days-1114.html)
 - [甘南扎尕那5天1298元：2到8人小团，最大的坑不是高反](https://laobaixingbanshi.com/wanle/gannan-5days-1114.html)
@@ -2335,7 +2353,11 @@
 - [佳帮手可旋转刀架筷子笼实测：菜刀筷子勺子一台收，沥水不发霉，厨房台面瞬间清爽](https://laobaixingbanshi.com/wanle/%e4%bd%b3%e5%b8%ae%e6%89%8b%e5%8f%af%e6%97%8b%e8%bd%ac%e5%88%80%e6%9e%b6%e7%ad%b7%e5%ad%90%e7%ac%bc%e5%ae%9e%e6%b5%8b%ef%bc%9a%e8%8f%9c%e5%88%80%e7%ad%b7%e5%ad%90%e5%8b%ba%e5%ad%90%e4%b8%80%e5%8f%b0.html)
 - [蒙牛奶皮子酸奶135g*12杯实测：上面一层奶皮稠到挂勺，2块6一杯比便利店省一半](https://laobaixingbanshi.com/wanle/%e8%92%99%e7%89%9b%e5%a5%b6%e7%9a%ae%e5%ad%90%e9%85%b8%e5%a5%b6135g12%e6%9d%af%e5%ae%9e%e6%b5%8b%ef%bc%9a%e4%b8%8a%e9%9d%a2%e4%b8%80%e5%b1%82%e5%a5%b6%e7%9a%ae%e7%a8%a0%e5%88%b0%e6%8c%82%e5%8b%ba.html)
 - [木纤维不沾油洗碗布实测：温水一冲油就掉，不用洗洁精也能洗净，一块用多久？](https://laobaixingbanshi.com/wanle/%e6%9c%a8%e7%ba%a4%e7%bb%b4%e4%b8%8d%e6%b2%be%e6%b2%b9%e6%b4%97%e7%a2%97%e5%b8%83%e5%ae%9e%e6%b5%8b%ef%bc%9a%e6%b8%a9%e6%b0%b4%e4%b8%80%e5%86%b2%e6%b2%b9%e5%b0%b1%e6%8e%89%ef%bc%8c%e4%b8%8d%e7%94%a8.html)
-## 购物优惠（227篇）
+## 购物优惠（231篇）
+- [16.9元1000g的去核红枣：省下的不是手工，是这个数](https://laobaixingbanshi.com/wanle/zao-1115-1115.html)
+- [9.9元的王致和腐乳，超市同款卖多少？我在三个渠道比了价](https://laobaixingbanshi.com/wanle/furui-1115-1115.html)
+- [一杯两块五的办公室奶茶：14.9元6杯，便宜在哪、亏在哪](https://laobaixingbanshi.com/wanle/naicha-1115-1115.html)
+- [6.9元两支对超市20元一支：软毛牙刷的差价到底差在哪](https://laobaixingbanshi.com/wanle/yashua-1115-1115.html)
 - [桶装水抽水器值不值53.9元：我家换掉手压泵之后的实测](https://laobaixingbanshi.com/wanle/bear-water-pump-1114.html)
 - [退租被扣300元押金，才知道墙面该这样补（附色差补救）](https://laobaixingbanshi.com/wanle/libang-wall-repair-1114.html)
 - [零下二十度打不着火：搭电宝买错比不买更麻烦](https://laobaixingbanshi.com/wanle/newsmy-jump-starter-1114.html)
@@ -2744,7 +2766,9 @@
 - [25.9元三利10A抗菌浴巾到底值不值？宿舍党实测，吸水速干还不掉毛](https://laobaixingbanshi.com/?p=6773)
 - [51.3元里兜小黑核混合猫砂到底好不好用？两只猫铲屎一个月，除臭结团实测](https://laobaixingbanshi.com/?p=6774)
 - [5块1的网红棉拖鞋到底能不能穿？16万人买过，上脚一周说说真实感受](https://laobaixingbanshi.com/?p=6775)
-## 本地生活·美团（218篇）
+## 本地生活·美团（220篇）
+- [13.7元抵18.88元套餐：鱼丸米线兑换券怎么核销，到店前先看这两条](https://laobaixingbanshi.com/wanle/%e6%80%8e%e4%b9%88%e9%a2%86%e9%b1%bc%e4%b8%b8%e7%b1%b3%e7%ba%bf%e5%85%91%e6%8d%a2%e5%88%b8%c2%b7%e7%9a%84%e4%bc%98%e6%83%a0%e5%88%b8%ef%bc%9f%e9%b1%bc%e4%b8%b8%e7%b1%b3%e7%ba%bf%e5%85%91%e6%8d%a2.html)
+- [75元进景区、比窗口买省315元：北京秋季热门票怎么挑不踩坑](https://laobaixingbanshi.com/wanle/%e9%87%91%e7%a7%8b%e7%be%8e%e6%99%af%e5%8c%97%e4%ba%ac%e7%83%ad%e9%97%a8%e7%a5%a8%e5%9b%a2%e8%b4%ad%e6%94%bb%e7%95%a5%ef%bc%8c75-00%e5%85%83%e5%85%a5%e5%9b%ad%ef%bc%8c%e6%af%94%e7%8e%b0%e5%9c%ba-4.html)
 - [通州万达锦华两晚969元，比标价省229元，但这三个问题要先问](https://laobaixingbanshi.com/wanle/%e4%bd%8f%e7%83%ad%e9%97%a8%e5%9f%8e%e5%b8%82%e9%85%92%e5%ba%97%e5%93%aa%e4%b8%aa%e5%b9%b3%e5%8f%b0%e6%9c%80%e4%be%bf%e5%ae%9c%ef%bc%9f%e5%8c%97%e4%ba%ac%e9%80%9a%e5%b7%9e%e4%b8%87%e8%be%be%e9%94%a6.html)
 - [75元的北京三选一直通车：慕田峪、黄花水长城、坡峰岭到底该挑哪个](https://laobaixingbanshi.com/wanle/%e9%87%91%e7%a7%8b%e7%be%8e%e6%99%af%e5%8c%97%e4%ba%ac%e7%83%ad%e4%bc%98%e6%83%a0%e9%97%a8%e7%a5%a8%e5%93%aa%e9%87%8c%e4%b9%b0%ef%bc%9f%e7%be%8e%e5%9b%a2%e5%9b%a2%e8%b4%ad75-00%e5%85%83%ef%bc%8c-2.html)
 - [429.66元的温泉票含榴莲畅吃和海鲜自助，18小时怎么用才不亏](https://laobaixingbanshi.com/wanle/%e4%bc%91%e9%97%b2%e5%a8%b1%e4%b9%90%e5%93%aa%e9%87%8c%e6%9c%80%e5%88%92%e7%ae%97%ef%bc%9f%e4%b9%9d%e5%8f%b7%e6%b8%a9%e6%b3%89%e7%94%9f%e6%b4%bb%e9%a6%86%e3%80%90%e5%bc%80%e9%bb%91%e8%a7%82%e8%b5%9b.html)
@@ -3137,7 +3161,8 @@
 - [面试求职自我介绍范文（应届生/跳槽/新员工入职通用，含3分钟与1分钟版本）Word下载](https://laobaixingbanshi.com/wenku/%e9%9d%a2%e8%af%95%e6%b1%82%e8%81%8c%e8%87%aa%e6%88%91%e4%bb%8b%e7%bb%8d%e8%8c%83%e6%96%87%ef%bc%88%e5%ba%94%e5%b1%8a%e7%94%9f-%e8%b7%b3%e6%a7%bd-%e6%96%b0%e5%91%98%e5%b7%a5%e5%85%a5%e8%81%8c%e9%80%9a.html)
 - [标准辞职信模板（个人原因/回老家/转行通用，含30天提前通知与交接条款）Word下载](https://laobaixingbanshi.com/wenku/%e6%a0%87%e5%87%86%e8%be%9e%e8%81%8c%e4%bf%a1%e6%a8%a1%e6%9d%bf%ef%bc%88%e4%b8%aa%e4%ba%ba%e5%8e%9f%e5%9b%a0-%e5%9b%9e%e8%80%81%e5%ae%b6-%e8%bd%ac%e8%a1%8c%e9%80%9a%e7%94%a8%ef%bc%8c%e5%90%ab30.html)
 - [离职证明范本（解除劳动合同证明，含社保转移与竞业限制说明，可直接填空）Word下载](https://laobaixingbanshi.com/wenku/%e7%a6%bb%e8%81%8c%e8%af%81%e6%98%8e%e8%8c%83%e6%9c%ac%ef%bc%88%e8%a7%a3%e9%99%a4%e5%8a%b3%e5%8a%a8%e5%90%88%e5%90%8c%e8%af%81%e6%98%8e%ef%bc%8c%e5%90%ab%e7%a4%be%e4%bf%9d%e8%bd%ac%e7%a7%bb%e4%b8%8e.html)
-## 知识文库（580篇）
+## 知识文库（581篇）
+- [证件丢了先别急着跑窗口：三类补办的材料、份数和办理顺序](https://laobaixingbanshi.com/wenku/zhengjian-buban-1115.html)
 - [办证材料总被退回？一份清单加自查表，出门前照着划](https://laobaixingbanshi.com/wenku/banzheng-cailiao-qingdan-1114.html)
 - [农村宅基地自建房：先批后建这五步，走错一步房子可能算违建](https://laobaixingbanshi.com/wenku/nongcun-zhaijidi-5bu-1114.html)
 - [退租时房东扣着押金不给：我照着这份交接清单，一个月内拿回了钱](https://laobaixingbanshi.com/wenku/%e9%80%80%e7%a7%9f%e6%97%b6%e6%88%bf%e4%b8%9c%e6%89%a3%e7%9d%80%e6%8a%bc%e9%87%91%e4%b8%8d%e7%bb%99%ef%bc%9a%e6%88%91%e7%85%a7%e7%9d%80%e8%bf%99%e4%bb%bd%e4%ba%a4%e6%8e%a5%e6%b8%85%e5%8d%95%ef%bc%8c.html)
@@ -4269,7 +4294,8 @@
 - [家庭居室装饰装修工程施工合同范本（含预算付款、隐蔽工程验收、质保与防坑条款）Word下载](https://laobaixingbanshi.com/falv/%e5%ae%b6%e5%ba%ad%e5%b1%85%e5%ae%a4%e8%a3%85%e9%a5%b0%e8%a3%85%e4%bf%ae%e5%b7%a5%e7%a8%8b%e6%96%bd%e5%b7%a5%e5%90%88%e5%90%8c%e8%8c%83%e6%9c%ac%ef%bc%88%e5%90%ab%e9%a2%84%e7%ae%97%e4%bb%98%e6%ac%be.html)
 - [房屋租赁合同范本（个人租房通用，含押金、租金、维修、退租与防坑条款）Word下载](https://laobaixingbanshi.com/falv/%e6%88%bf%e5%b1%8b%e7%a7%9f%e8%b5%81%e5%90%88%e5%90%8c%e8%8c%83%e6%9c%ac%ef%bc%88%e4%b8%aa%e4%ba%ba%e7%a7%9f%e6%88%bf%e9%80%9a%e7%94%a8%ef%bc%8c%e5%90%ab%e6%8a%bc%e9%87%91%e3%80%81%e7%a7%9f%e9%87%91.html)
 - [个人借款合同范本（民间借贷标准版，含利息、还款、逾期违约金与担保条款）Word下载](https://laobaixingbanshi.com/falv/%e4%b8%aa%e4%ba%ba%e5%80%9f%e6%ac%be%e5%90%88%e5%90%8c%e8%8c%83%e6%9c%ac%ef%bc%88%e6%b0%91%e9%97%b4%e5%80%9f%e8%b4%b7%e6%a0%87%e5%87%86%e7%89%88%ef%bc%8c%e5%90%ab%e5%88%a9%e6%81%af%e3%80%81%e8%bf%98.html)
-## 法律合同（176篇）
+## 法律合同（177篇）
+- [劳务合同写成劳动合同，赔偿能差一倍：一张纸上的四个关键条款](https://laobaixingbanshi.com/falv/laowu-hetong-1115.html)
 - [租房合同别只签一张纸：十二条条款加逐条说明，押金才退得回来](https://laobaixingbanshi.com/falv/zulin-hetong-shifan-1114.html)
 - [熟人借钱写不清，事后举证难：借款合同示范文本加风险提示](https://laobaixingbanshi.com/falv/jiekuan-hetong-shifan-1114.html)
 - [借条上少写一句话，利息就可能要不回来：个人借款合同这三处必须写](https://laobaixingbanshi.com/falv/%e5%80%9f%e6%9d%a1%e4%b8%8a%e5%b0%91%e5%86%99%e4%b8%80%e5%8f%a5%e8%af%9d%ef%bc%8c%e5%88%a9%e6%81%af%e5%b0%b1%e5%8f%af%e8%83%bd%e8%a6%81%e4%b8%8d%e5%9b%9e%e6%9d%a5%ef%bc%9a%e4%b8%aa%e4%ba%ba%e5%80%9f.html)
@@ -4971,7 +4997,8 @@
 - [2026年小学教师资格证《教育教学知识与能力》100题（含答案解析）Word下载](https://laobaixingbanshi.com/kaozheng/2026%e5%b9%b4%e5%b0%8f%e5%ad%a6%e6%95%99%e5%b8%88%e8%b5%84%e6%a0%bc%e8%af%81%e3%80%8a%e6%95%99%e8%82%b2%e6%95%99%e5%ad%a6%e7%9f%a5%e8%af%86%e4%b8%8e%e8%83%bd%e5%8a%9b%e3%80%8b100%e9%a2%98%ef%bc%88.html)
 - [个体工商户营业执照注销怎么办理？2026最新流程：先清税再销照，简易注销和普通注销区别说清楚](https://laobaixingbanshi.com/chuangye/%e4%b8%aa%e4%bd%93%e5%b7%a5%e5%95%86%e6%88%b7%e8%90%a5%e4%b8%9a%e6%89%a7%e7%85%a7%e6%b3%a8%e9%94%80%e6%80%8e%e4%b9%88%e5%8a%9e%e7%90%86%ef%bc%9f2026%e6%9c%80%e6%96%b0%e6%b5%81%e7%a8%8b%ef%bc%9a.html)
 - [小规模纳税人增值税怎么申报？2026最新流程：季报、零申报、免税额度一次说清楚](https://laobaixingbanshi.com/chuangye/%e5%b0%8f%e8%a7%84%e6%a8%a1%e7%ba%b3%e7%a8%8e%e4%ba%ba%e5%a2%9e%e5%80%bc%e7%a8%8e%e6%80%8e%e4%b9%88%e7%94%b3%e6%8a%a5%ef%bc%9f2026%e6%9c%80%e6%96%b0%e6%b5%81%e7%a8%8b%ef%bc%9a%e5%ad%a3%e6%8a%a5.html)
-## 创业办事（148篇）
+## 创业办事（149篇）
+- [个体户从办照到年报：六份材料、四件事、一个档案袋](https://laobaixingbanshi.com/chuangye/getihu-kaiye-1115.html)
 - [个体户执照好办年报难？开办到注销的完整流程和海拉尔窗口实操](https://laobaixingbanshi.com/chuangye/geti-hukaiye-nianbao-1114.html)
 - [个体户忘了年报被列入经营异常名录：我按这五步补报，十天后移出了](https://laobaixingbanshi.com/chuangye/%e4%b8%aa%e4%bd%93%e6%88%b7%e5%bf%98%e4%ba%86%e5%b9%b4%e6%8a%a5%e8%a2%ab%e5%88%97%e5%85%a5%e7%bb%8f%e8%90%a5%e5%bc%82%e5%b8%b8%e5%90%8d%e5%bd%95%ef%bc%9a%e6%88%91%e6%8c%89%e8%bf%99%e4%ba%94%e6%ad%a5.html)
 - [办个体营业执照，我跑了三趟才明白：先做这一步能省两天](https://laobaixingbanshi.com/chuangye/%e5%8a%9e%e4%b8%aa%e4%bd%93%e8%90%a5%e4%b8%9a%e6%89%a7%e7%85%a7%ef%bc%8c%e6%88%91%e8%b7%91%e4%ba%86%e4%b8%89%e8%b6%9f%e6%89%8d%e6%98%8e%e7%99%bd%ef%bc%9a%e5%85%88%e5%81%9a%e8%bf%99%e4%b8%80%e6%ad%a5.html)
