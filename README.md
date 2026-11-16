@@ -2379,6 +2379,7 @@
 - [佳帮手可旋转刀架筷子笼实测：菜刀筷子勺子一台收，沥水不发霉，厨房台面瞬间清爽](https://laobaixingbanshi.com/wanle/%e4%bd%b3%e5%b8%ae%e6%89%8b%e5%8f%af%e6%97%8b%e8%bd%ac%e5%88%80%e6%9e%b6%e7%ad%b7%e5%ad%90%e7%ac%bc%e5%ae%9e%e6%b5%8b%ef%bc%9a%e8%8f%9c%e5%88%80%e7%ad%b7%e5%ad%90%e5%8b%ba%e5%ad%90%e4%b8%80%e5%8f%b0.html)
 - [蒙牛奶皮子酸奶135g*12杯实测：上面一层奶皮稠到挂勺，2块6一杯比便利店省一半](https://laobaixingbanshi.com/wanle/%e8%92%99%e7%89%9b%e5%a5%b6%e7%9a%ae%e5%ad%90%e9%85%b8%e5%a5%b6135g12%e6%9d%af%e5%ae%9e%e6%b5%8b%ef%bc%9a%e4%b8%8a%e9%9d%a2%e4%b8%80%e5%b1%82%e5%a5%b6%e7%9a%ae%e7%a8%a0%e5%88%b0%e6%8c%82%e5%8b%ba.html)
 - [木纤维不沾油洗碗布实测：温水一冲油就掉，不用洗洁精也能洗净，一块用多久？](https://laobaixingbanshi.com/wanle/%e6%9c%a8%e7%ba%a4%e7%bb%b4%e4%b8%8d%e6%b2%be%e6%b2%b9%e6%b4%97%e7%a2%97%e5%b8%83%e5%ae%9e%e6%b5%8b%ef%bc%9a%e6%b8%a9%e6%b0%b4%e4%b8%80%e5%86%b2%e6%b2%b9%e5%b0%b1%e6%8e%89%ef%bc%8c%e4%b8%8d%e7%94%a8.html)
+- [180元的雪乡2日游，车住门票都含了，另外三笔钱得自己掏](https://laobaixingbanshi.com/uncategorized/xuexiang-2ri-180-yuan-han-yu-buhan.html)
 ## 购物优惠（231篇）
 - [16.9元1000g的去核红枣：省下的不是手工，是这个数](https://laobaixingbanshi.com/wanle/zao-1115-1115.html)
 - [9.9元的王致和腐乳，超市同款卖多少？我在三个渠道比了价](https://laobaixingbanshi.com/wanle/furui-1115-1115.html)
