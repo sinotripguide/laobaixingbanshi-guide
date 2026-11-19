@@ -5486,7 +5486,7 @@
 - [失业保险金怎么领？2026最新条件和流程：被公司辞退能领多少，主动辞职能不能领，一次说清楚](https://laobaixingbanshi.com/shebao/%e5%a4%b1%e4%b8%9a%e4%bf%9d%e9%99%a9%e9%87%91%e6%80%8e%e4%b9%88%e9%a2%86%ef%bc%9f2026%e6%9c%80%e6%96%b0%e6%9d%a1%e4%bb%b6%e5%92%8c%e6%b5%81%e7%a8%8b%ef%bc%9a%e8%a2%ab%e5%85%ac%e5%8f%b8%e8%be%9e.html)
 - [医保个人账户家庭共济怎么绑定？2026最新流程：配偶父母子女共用，买药门诊一次讲清](https://laobaixingbanshi.com/shebao/%e5%8c%bb%e4%bf%9d%e4%b8%aa%e4%ba%ba%e8%b4%a6%e6%88%b7%e5%ae%b6%e5%ba%ad%e5%85%b1%e6%b5%8e%e6%80%8e%e4%b9%88%e7%bb%91%e5%ae%9a%ef%bc%9f2026%e6%9c%80%e6%96%b0%e6%b5%81%e7%a8%8b%ef%bc%9a%e9%85%8d.html)
 - [顾客说付过了，音箱没响：先别发货，按这三步查单再谈退款](https://laobaixingbanshi.com/shoukuan/chadan-sanbu-1119.html)
-## 社保医保（127篇）
+## 社保医保（128篇）
 - [跨省换工作，养老保险关系什么时候转？海拉尔窗口要带的三样东西](https://laobaixingbanshi.com/shebao/yanglao-zhuanyi-1116.html)
 - [灵活就业自己交社保，到底选哪档？我按三个收入段算了笔账](https://laobaixingbanshi.com/shebao/%e7%81%b5%e6%b4%bb%e5%b0%b1%e4%b8%9a%e8%87%aa%e5%b7%b1%e4%ba%a4%e7%a4%be%e4%bf%9d%ef%bc%8c%e5%88%b0%e5%ba%95%e9%80%89%e5%93%aa%e6%a1%a3%ef%bc%9f%e6%88%91%e6%8c%89%e4%b8%89%e4%b8%aa%e6%94%b6%e5%85%a5.html)
 
@@ -5739,6 +5739,7 @@
 - [工伤认定流程及赔偿标准2026（一篇讲清楚）](https://laobaixingbanshi.com/%e5%b7%a5%e4%bc%a4%e8%ae%a4%e5%ae%9a%e6%b5%81%e7%a8%8b%e5%8f%8a%e8%b5%94%e5%81%bf%e6%a0%87%e5%87%862026%ef%bc%88%e4%b8%80%e7%af%87%e8%ae%b2%e6%b8%85%e6%a5%9a%ef%bc%89/)
 
 - [住房公积金提取条件和流程2026（购房/租房/还贷/离职全解）](https://laobaixingbanshi.com/%e4%bd%8f%e6%88%bf%e5%85%ac%e7%a7%af%e9%87%91%e6%8f%90%e5%8f%96%e6%9d%a1%e4%bb%b6%e5%92%8c%e6%b5%81%e7%a8%8b2026%ef%bc%88%e8%b4%ad%e6%88%bf-%e7%a7%9f%e6%88%bf-%e8%bf%98%e8%b4%b7-%e7%a6%bb%e8%81%8c/)
+- [错过居民医保集中缴费期，报销要往后等三个月：这笔账先算清](https://laobaixingbanshi.com/shebao/yibao-jizhong-jiaofei-1120.html)
 
 
 
