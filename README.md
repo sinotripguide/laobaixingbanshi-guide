@@ -3192,7 +3192,7 @@
 - [标准辞职信模板（个人原因/回老家/转行通用，含30天提前通知与交接条款）Word下载](https://laobaixingbanshi.com/wenku/%e6%a0%87%e5%87%86%e8%be%9e%e8%81%8c%e4%bf%a1%e6%a8%a1%e6%9d%bf%ef%bc%88%e4%b8%aa%e4%ba%ba%e5%8e%9f%e5%9b%a0-%e5%9b%9e%e8%80%81%e5%ae%b6-%e8%bd%ac%e8%a1%8c%e9%80%9a%e7%94%a8%ef%bc%8c%e5%90%ab30.html)
 - [离职证明范本（解除劳动合同证明，含社保转移与竞业限制说明，可直接填空）Word下载](https://laobaixingbanshi.com/wenku/%e7%a6%bb%e8%81%8c%e8%af%81%e6%98%8e%e8%8c%83%e6%9c%ac%ef%bc%88%e8%a7%a3%e9%99%a4%e5%8a%b3%e5%8a%a8%e5%90%88%e5%90%8c%e8%af%81%e6%98%8e%ef%bc%8c%e5%90%ab%e7%a4%be%e4%bf%9d%e8%bd%ac%e7%a7%bb%e4%b8%8e.html)
 - [160元的亲子票包1大1小加海狮表演，比门市省一半，先问清孩子身高](https://laobaixingbanshi.com/wanle/taipingyang-haidi-shijie-qinzi-160.html)
-## 知识文库（583篇）
+## 知识文库（584篇）
 - [医保手工报销总被退回？九项材料＋申请书模板，缺一张就得再跑一趟](https://laobaixingbanshi.com/wenku/yibao-baoxiao-1116.html)
 - [营业执照年报6月30日关闸：六个栏目五个坑，附情况说明模板](https://laobaixingbanshi.com/wenku/gtshang-nianbao-1116.html)
 - [证件丢了先别急着跑窗口：三类补办的材料、份数和办理顺序](https://laobaixingbanshi.com/wenku/zhengjian-buban-1115.html)
@@ -4327,6 +4327,7 @@
 - [家庭居室装饰装修工程施工合同范本（含预算付款、隐蔽工程验收、质保与防坑条款）Word下载](https://laobaixingbanshi.com/falv/%e5%ae%b6%e5%ba%ad%e5%b1%85%e5%ae%a4%e8%a3%85%e9%a5%b0%e8%a3%85%e4%bf%ae%e5%b7%a5%e7%a8%8b%e6%96%bd%e5%b7%a5%e5%90%88%e5%90%8c%e8%8c%83%e6%9c%ac%ef%bc%88%e5%90%ab%e9%a2%84%e7%ae%97%e4%bb%98%e6%ac%be.html)
 - [房屋租赁合同范本（个人租房通用，含押金、租金、维修、退租与防坑条款）Word下载](https://laobaixingbanshi.com/falv/%e6%88%bf%e5%b1%8b%e7%a7%9f%e8%b5%81%e5%90%88%e5%90%8c%e8%8c%83%e6%9c%ac%ef%bc%88%e4%b8%aa%e4%ba%ba%e7%a7%9f%e6%88%bf%e9%80%9a%e7%94%a8%ef%bc%8c%e5%90%ab%e6%8a%bc%e9%87%91%e3%80%81%e7%a7%9f%e9%87%91.html)
 - [个人借款合同范本（民间借贷标准版，含利息、还款、逾期违约金与担保条款）Word下载](https://laobaixingbanshi.com/falv/%e4%b8%aa%e4%ba%ba%e5%80%9f%e6%ac%be%e5%90%88%e5%90%8c%e8%8c%83%e6%9c%ac%ef%bc%88%e6%b0%91%e9%97%b4%e5%80%9f%e8%b4%b7%e6%a0%87%e5%87%86%e7%89%88%ef%bc%8c%e5%90%ab%e5%88%a9%e6%81%af%e3%80%81%e8%bf%98.html)
+- [供暖两个月了还能报停吗？海拉尔这道门在 8 月底就关了](https://laobaixingbanshi.com/wenku/gongre-tingre-cailiao-1121.html)
 ## 法律合同（179篇）
 - [雇人帮忙要不要签合同？劳务合同模板里最容易漏掉的是第三条](https://laobaixingbanshi.com/falv/laowu-hetong-1116.html)
 - [租房押金老被扣？合同里把维修时限和退押条件写死，退租就不用吵](https://laobaixingbanshi.com/falv/fangwu-zulin-1116.html)
