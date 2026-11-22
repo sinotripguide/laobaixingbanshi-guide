@@ -10,7 +10,7 @@
 
 
 
-## 招考就业（778篇）
+## 招考就业（779篇）
 - [42个岗位、聘期3年：金沙农村教师示范岗11月16日开报，先看你在不在乡镇名单](https://laobaixingbanshi.com/zhaokao/jinsha-tegang-1116.html)
 - [100元报名费、11月19日23:59关闸：贵州水务这批岗，附件岗位表盯住三行](https://laobaixingbanshi.com/zhaokao/guizhou-shuiwu-1116.html)
 - [普定县属国企放11个岗，报名只到11月20日17点，全程网上不设现场点](https://laobaixingbanshi.com/zhaokao/puding-gongtou-1116.html)
@@ -1231,6 +1231,7 @@
 - [兵马俑别光买票自己瞎看：提前订好讲解，一号坑那一排泥人终于看懂了](https://laobaixingbanshi.com/wanle/%e5%85%b5%e9%a9%ac%e4%bf%91%e5%88%ab%e5%85%89%e4%b9%b0%e7%a5%a8%e8%87%aa%e5%b7%b1%e7%9e%8e%e7%9c%8b%ef%bc%9a%e6%8f%90%e5%89%8d%e8%ae%a2%e5%a5%bd%e8%ae%b2%e8%a7%a3%ef%bc%8c%e4%b8%80%e5%8f%b7%e5%9d%91.html)
 - [在三亚瑞吉躺了三天没出门：推门就是泳池，娃玩到不肯回房间](https://laobaixingbanshi.com/wanle/%e5%9c%a8%e4%b8%89%e4%ba%9a%e7%91%9e%e5%90%89%e8%ba%ba%e4%ba%86%e4%b8%89%e5%a4%a9%e6%b2%a1%e5%87%ba%e9%97%a8%ef%bc%9a%e6%8e%a8%e9%97%a8%e5%b0%b1%e6%98%af%e6%b3%b3%e6%b1%a0%ef%bc%8c%e5%a8%83%e7%8e%a9.html)
 - [一年飞二十趟的人说句实话：同一张机票多比一家，能省出一顿火锅](https://laobaixingbanshi.com/wanle/%e4%b8%80%e5%b9%b4%e9%a3%9e%e4%ba%8c%e5%8d%81%e8%b6%9f%e7%9a%84%e4%ba%ba%e8%af%b4%e5%8f%a5%e5%ae%9e%e8%af%9d%ef%bc%9a%e5%90%8c%e4%b8%80%e5%bc%a0%e6%9c%ba%e7%a5%a8%e5%a4%9a%e6%af%94%e4%b8%80%e5%ae%b6.html)
+- [呼伦贝尔256个岗位报名到12月18日：本科38岁也能报，三类人白报](https://laobaixingbanshi.com/zhaokao/zhihui-hlbe-256-1123.html)
 ## 旅游酒店（639篇）
 - [恩施大峡谷一日游129.99元够玩吗？索道和景交另算，一天只够走主线](https://laobaixingbanshi.com/wanle/enshi-daxiagu-1116.html)
 - [荔波小七孔78元跟团：钱省在哪、东西门怎么选、六个点按顺序走](https://laobaixingbanshi.com/wanle/libo-xiaoqikong-1116.html)
