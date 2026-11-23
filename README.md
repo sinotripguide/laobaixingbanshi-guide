@@ -1232,7 +1232,7 @@
 - [在三亚瑞吉躺了三天没出门：推门就是泳池，娃玩到不肯回房间](https://laobaixingbanshi.com/wanle/%e5%9c%a8%e4%b8%89%e4%ba%9a%e7%91%9e%e5%90%89%e8%ba%ba%e4%ba%86%e4%b8%89%e5%a4%a9%e6%b2%a1%e5%87%ba%e9%97%a8%ef%bc%9a%e6%8e%a8%e9%97%a8%e5%b0%b1%e6%98%af%e6%b3%b3%e6%b1%a0%ef%bc%8c%e5%a8%83%e7%8e%a9.html)
 - [一年飞二十趟的人说句实话：同一张机票多比一家，能省出一顿火锅](https://laobaixingbanshi.com/wanle/%e4%b8%80%e5%b9%b4%e9%a3%9e%e4%ba%8c%e5%8d%81%e8%b6%9f%e7%9a%84%e4%ba%ba%e8%af%b4%e5%8f%a5%e5%ae%9e%e8%af%9d%ef%bc%9a%e5%90%8c%e4%b8%80%e5%bc%a0%e6%9c%ba%e7%a5%a8%e5%a4%9a%e6%af%94%e4%b8%80%e5%ae%b6.html)
 - [呼伦贝尔256个岗位报名到12月18日：本科38岁也能报，三类人白报](https://laobaixingbanshi.com/zhaokao/zhihui-hlbe-256-1123.html)
-## 旅游酒店（639篇）
+## 旅游酒店（640篇）
 - [恩施大峡谷一日游129.99元够玩吗？索道和景交另算，一天只够走主线](https://laobaixingbanshi.com/wanle/enshi-daxiagu-1116.html)
 - [荔波小七孔78元跟团：钱省在哪、东西门怎么选、六个点按顺序走](https://laobaixingbanshi.com/wanle/libo-xiaoqikong-1116.html)
 - [婺源篁岭晒秋什么时候最出片？198元一日游含索道，动线先高后低](https://laobaixingbanshi.com/wanle/wuyuan-huangling-1116.html)
@@ -2381,6 +2381,7 @@
 - [蒙牛奶皮子酸奶135g*12杯实测：上面一层奶皮稠到挂勺，2块6一杯比便利店省一半](https://laobaixingbanshi.com/wanle/%e8%92%99%e7%89%9b%e5%a5%b6%e7%9a%ae%e5%ad%90%e9%85%b8%e5%a5%b6135g12%e6%9d%af%e5%ae%9e%e6%b5%8b%ef%bc%9a%e4%b8%8a%e9%9d%a2%e4%b8%80%e5%b1%82%e5%a5%b6%e7%9a%ae%e7%a8%a0%e5%88%b0%e6%8c%82%e5%8b%ba.html)
 - [木纤维不沾油洗碗布实测：温水一冲油就掉，不用洗洁精也能洗净，一块用多久？](https://laobaixingbanshi.com/wanle/%e6%9c%a8%e7%ba%a4%e7%bb%b4%e4%b8%8d%e6%b2%be%e6%b2%b9%e6%b4%97%e7%a2%97%e5%b8%83%e5%ae%9e%e6%b5%8b%ef%bc%9a%e6%b8%a9%e6%b0%b4%e4%b8%80%e5%86%b2%e6%b2%b9%e5%b0%b1%e6%8e%89%ef%bc%8c%e4%b8%8d%e7%94%a8.html)
 - [180元的雪乡2日游，车住门票都含了，另外三笔钱得自己掏](https://laobaixingbanshi.comhttps://laobaixingbanshi.com/wanle/xuexiang-2ri-180-yuan-han-yu-buhan.html)
+- [达古冰川296元的套票只省14元，11月26日索道还要停一天](https://laobaixingbanshi.com/wanle/dagu-glacier-296-1124.html)
 ## 购物优惠（231篇）
 - [16.9元1000g的去核红枣：省下的不是手工，是这个数](https://laobaixingbanshi.com/wanle/zao-1115-1115.html)
 - [9.9元的王致和腐乳，超市同款卖多少？我在三个渠道比了价](https://laobaixingbanshi.com/wanle/furui-1115-1115.html)
