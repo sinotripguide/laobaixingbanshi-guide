@@ -4666,7 +4666,8 @@
 - [教师资格证《综合素质（中学）》100题（含答案与解析，2027备考刷题）Word下载](https://laobaixingbanshi.com/kaozheng/%e6%95%99%e5%b8%88%e8%b5%84%e6%a0%bc%e8%af%81%e3%80%8a%e7%bb%bc%e5%90%88%e7%b4%a0%e8%b4%a8%ef%bc%88%e4%b8%ad%e5%ad%a6%ef%bc%89%e3%80%8b100%e9%a2%98%ef%bc%88%e5%90%ab%e7%ad%94%e6%a1%88%e4%b8%8e.html)
 - [导游资格证《导游业务》100题（含答案与解析，2027备考刷题）Word下载](https://laobaixingbanshi.com/kaozheng/%e5%af%bc%e6%b8%b8%e8%b5%84%e6%a0%bc%e8%af%81%e3%80%8a%e5%af%bc%e6%b8%b8%e4%b8%9a%e5%8a%a1%e3%80%8b100%e9%a2%98%ef%bc%88%e5%90%ab%e7%ad%94%e6%a1%88%e4%b8%8e%e8%a7%a3%e6%9e%90%ef%bc%8c2027%e5%a4%87.html)
 - [工地停工工资没结，先打 0470-8117196：海拉尔欠薪维权四步，顺序反了容易白跑](https://laobaixingbanshi.com/falv/gongdi-qianxin-1122.html)
-## 职业考证（197篇）
+## 职业考证（198篇）
+- [高处作业证到期没复审等于白考：6年有效期里，第3年这道手续别拖](https://laobaixingbanshi.com/kaozheng/gaochu-fushen-1126.html)
 - [低压电工理论100题：安全电压、接地、验电这三类题最容易丢分](https://laobaixingbanshi.com/kaozheng/diangong-100ti-1116.html)
 - [保育员初级100题：晨检、消毒、急救三块占分最多，先背这四套动作](https://laobaixingbanshi.com/kaozheng/baoyuyuan-100ti-1116.html)
 - [低压电工证理论100题：错得最多的是这几个数字](https://laobaixingbanshi.com/kaozheng/diangong-100ti-1114.html)
@@ -5039,7 +5040,8 @@
 - [2026年小学教师资格证《教育教学知识与能力》100题（含答案解析）Word下载](https://laobaixingbanshi.com/kaozheng/2026%e5%b9%b4%e5%b0%8f%e5%ad%a6%e6%95%99%e5%b8%88%e8%b5%84%e6%a0%bc%e8%af%81%e3%80%8a%e6%95%99%e8%82%b2%e6%95%99%e5%ad%a6%e7%9f%a5%e8%af%86%e4%b8%8e%e8%83%bd%e5%8a%9b%e3%80%8b100%e9%a2%98%ef%bc%88.html)
 - [个体工商户营业执照注销怎么办理？2026最新流程：先清税再销照，简易注销和普通注销区别说清楚](https://laobaixingbanshi.com/chuangye/%e4%b8%aa%e4%bd%93%e5%b7%a5%e5%95%86%e6%88%b7%e8%90%a5%e4%b8%9a%e6%89%a7%e7%85%a7%e6%b3%a8%e9%94%80%e6%80%8e%e4%b9%88%e5%8a%9e%e7%90%86%ef%bc%9f2026%e6%9c%80%e6%96%b0%e6%b5%81%e7%a8%8b%ef%bc%9a.html)
 - [小规模纳税人增值税怎么申报？2026最新流程：季报、零申报、免税额度一次说清楚](https://laobaixingbanshi.com/chuangye/%e5%b0%8f%e8%a7%84%e6%a8%a1%e7%ba%b3%e7%a8%8e%e4%ba%ba%e5%a2%9e%e5%80%bc%e7%a8%8e%e6%80%8e%e4%b9%88%e7%94%b3%e6%8a%a5%ef%bc%9f2026%e6%9c%80%e6%96%b0%e6%b5%81%e7%a8%8b%ef%bc%9a%e5%ad%a3%e6%8a%a5.html)
-## 创业办事（150篇）
+## 创业办事（151篇）
+- [门市租下来了执照却办不下来：卡在“场地证明”，合同、房本、住改商三份材料怎么凑](https://laobaixingbanshi.com/chuangye/changdi-zhengming-1126.html)
 - [在海拉尔开个小店：八项材料、三条经营范围规则，少跑两趟窗口](https://laobaixingbanshi.com/chuangye/gongshang-kaihu-1116.html)
 - [个体户从办照到年报：六份材料、四件事、一个档案袋](https://laobaixingbanshi.com/chuangye/getihu-kaiye-1115.html)
 - [个体户执照好办年报难？开办到注销的完整流程和海拉尔窗口实操](https://laobaixingbanshi.com/chuangye/geti-hukaiye-nianbao-1114.html)
@@ -5334,7 +5336,8 @@
 
 
 - [2026年办收款码POS机怕售后跑路？费率被调押金不退怎么维权，正规本地办理指南](https://laobaixingbanshi.com/shoukuan/2026%e5%b9%b4%e5%8a%9e%e6%94%b6%e6%ac%be%e7%a0%81pos%e6%9c%ba%e6%80%95%e5%94%ae%e5%90%8e%e8%b7%91%e8%b7%af%ef%bc%9f%e8%b4%b9%e7%8e%87%e8%a2%ab%e8%b0%83%e6%8a%bc%e9%87%91%e4%b8%8d%e9%80%80%e6%80%8e.html)
-## 商户收款（78篇）
+## 商户收款（79篇）
+- [限额卡在“单日”这一栏：收款码提额要补的三样材料，少一样都白跑](https://laobaixingbanshi.com/shoukuan/shoukuan-xiiane-1126.html)
 - [开店收款别只看费率：0.2%的报价背后，结算被冻结一周损失多少](https://laobaixingbanshi.com/shoukuan/shoukuan-feilv-1116.html)
 
 
