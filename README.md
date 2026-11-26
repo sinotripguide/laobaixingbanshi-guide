@@ -10,7 +10,8 @@
 
 
 
-## 招考就业（779篇）
+## 招考就业（780篇）
+- [65个事业编、12月1日开报：内蒙古气象这批，2025和2026届没交社保的也能报](https://laobaixingbanshi.com/zhaokao/neimenggu-qixiang-2027-zhaopin-65ren-1201.html)
 - [42个岗位、聘期3年：金沙农村教师示范岗11月16日开报，先看你在不在乡镇名单](https://laobaixingbanshi.com/zhaokao/jinsha-tegang-1116.html)
 - [100元报名费、11月19日23:59关闸：贵州水务这批岗，附件岗位表盯住三行](https://laobaixingbanshi.com/zhaokao/guizhou-shuiwu-1116.html)
 - [普定县属国企放11个岗，报名只到11月20日17点，全程网上不设现场点](https://laobaixingbanshi.com/zhaokao/puding-gongtou-1116.html)
@@ -1232,7 +1233,8 @@
 - [在三亚瑞吉躺了三天没出门：推门就是泳池，娃玩到不肯回房间](https://laobaixingbanshi.com/wanle/%e5%9c%a8%e4%b8%89%e4%ba%9a%e7%91%9e%e5%90%89%e8%ba%ba%e4%ba%86%e4%b8%89%e5%a4%a9%e6%b2%a1%e5%87%ba%e9%97%a8%ef%bc%9a%e6%8e%a8%e9%97%a8%e5%b0%b1%e6%98%af%e6%b3%b3%e6%b1%a0%ef%bc%8c%e5%a8%83%e7%8e%a9.html)
 - [一年飞二十趟的人说句实话：同一张机票多比一家，能省出一顿火锅](https://laobaixingbanshi.com/wanle/%e4%b8%80%e5%b9%b4%e9%a3%9e%e4%ba%8c%e5%8d%81%e8%b6%9f%e7%9a%84%e4%ba%ba%e8%af%b4%e5%8f%a5%e5%ae%9e%e8%af%9d%ef%bc%9a%e5%90%8c%e4%b8%80%e5%bc%a0%e6%9c%ba%e7%a5%a8%e5%a4%9a%e6%af%94%e4%b8%80%e5%ae%b6.html)
 - [呼伦贝尔256个岗位报名到12月18日：本科38岁也能报，三类人白报](https://laobaixingbanshi.com/zhaokao/zhihui-hlbe-256-1123.html)
-## 旅游酒店（640篇）
+## 旅游酒店（641篇）
+- [699元跑弥勒四个点，我把最赶的那一段拆开算了一遍](https://laobaixingbanshi.com/wanle/mile-2tian-699-yuan-feizhu-gentuan-1127.html)
 - [恩施大峡谷一日游129.99元够玩吗？索道和景交另算，一天只够走主线](https://laobaixingbanshi.com/wanle/enshi-daxiagu-1116.html)
 - [荔波小七孔78元跟团：钱省在哪、东西门怎么选、六个点按顺序走](https://laobaixingbanshi.com/wanle/libo-xiaoqikong-1116.html)
 - [婺源篁岭晒秋什么时候最出片？198元一日游含索道，动线先高后低](https://laobaixingbanshi.com/wanle/wuyuan-huangling-1116.html)
@@ -5494,7 +5496,8 @@
 - [失业保险金怎么领？2026最新条件和流程：被公司辞退能领多少，主动辞职能不能领，一次说清楚](https://laobaixingbanshi.com/shebao/%e5%a4%b1%e4%b8%9a%e4%bf%9d%e9%99%a9%e9%87%91%e6%80%8e%e4%b9%88%e9%a2%86%ef%bc%9f2026%e6%9c%80%e6%96%b0%e6%9d%a1%e4%bb%b6%e5%92%8c%e6%b5%81%e7%a8%8b%ef%bc%9a%e8%a2%ab%e5%85%ac%e5%8f%b8%e8%be%9e.html)
 - [医保个人账户家庭共济怎么绑定？2026最新流程：配偶父母子女共用，买药门诊一次讲清](https://laobaixingbanshi.com/shebao/%e5%8c%bb%e4%bf%9d%e4%b8%aa%e4%ba%ba%e8%b4%a6%e6%88%b7%e5%ae%b6%e5%ba%ad%e5%85%b1%e6%b5%8e%e6%80%8e%e4%b9%88%e7%bb%91%e5%ae%9a%ef%bc%9f2026%e6%9c%80%e6%96%b0%e6%b5%81%e7%a8%8b%ef%bc%9a%e9%85%8d.html)
 - [顾客说付过了，音箱没响：先别发货，按这三步查单再谈退款](https://laobaixingbanshi.com/shoukuan/chadan-sanbu-1119.html)
-## 社保医保（128篇）
+## 社保医保（129篇）
+- [门诊慢性病认定，为什么材料交上去又被退回？海拉尔两个窗口的细节](https://laobaixingbanshi.com/shebao/menzhen-manxingbing-rending-hailaer-chuangkou-1127.html)
 - [跨省换工作，养老保险关系什么时候转？海拉尔窗口要带的三样东西](https://laobaixingbanshi.com/shebao/yanglao-zhuanyi-1116.html)
 - [灵活就业自己交社保，到底选哪档？我按三个收入段算了笔账](https://laobaixingbanshi.com/shebao/%e7%81%b5%e6%b4%bb%e5%b0%b1%e4%b8%9a%e8%87%aa%e5%b7%b1%e4%ba%a4%e7%a4%be%e4%bf%9d%ef%bc%8c%e5%88%b0%e5%ba%95%e9%80%89%e5%93%aa%e6%a1%a3%ef%bc%9f%e6%88%91%e6%8c%89%e4%b8%89%e4%b8%aa%e6%94%b6%e5%85%a5.html)
 
