@@ -2384,7 +2384,8 @@
 - [木纤维不沾油洗碗布实测：温水一冲油就掉，不用洗洁精也能洗净，一块用多久？](https://laobaixingbanshi.com/wanle/%e6%9c%a8%e7%ba%a4%e7%bb%b4%e4%b8%8d%e6%b2%be%e6%b2%b9%e6%b4%97%e7%a2%97%e5%b8%83%e5%ae%9e%e6%b5%8b%ef%bc%9a%e6%b8%a9%e6%b0%b4%e4%b8%80%e5%86%b2%e6%b2%b9%e5%b0%b1%e6%8e%89%ef%bc%8c%e4%b8%8d%e7%94%a8.html)
 - [180元的雪乡2日游，车住门票都含了，另外三笔钱得自己掏](https://laobaixingbanshi.comhttps://laobaixingbanshi.com/wanle/xuexiang-2ri-180-yuan-han-yu-buhan.html)
 - [达古冰川296元的套票只省14元，11月26日索道还要停一天](https://laobaixingbanshi.com/wanle/dagu-glacier-296-1124.html)
-## 购物优惠（231篇）
+## 购物优惠（232篇）
+- [海拉尔零下20℃晾不干衣服，我把艾美特 HG12-K5 衣柜烘干机搬回家](https://laobaixingbanshi.com/wanle/hailaer-hongganji-airmate-hg12k5-1128.html)
 - [16.9元1000g的去核红枣：省下的不是手工，是这个数](https://laobaixingbanshi.com/wanle/zao-1115-1115.html)
 - [9.9元的王致和腐乳，超市同款卖多少？我在三个渠道比了价](https://laobaixingbanshi.com/wanle/furui-1115-1115.html)
 - [一杯两块五的办公室奶茶：14.9元6杯，便宜在哪、亏在哪](https://laobaixingbanshi.com/wanle/naicha-1115-1115.html)
@@ -2797,7 +2798,8 @@
 - [25.9元三利10A抗菌浴巾到底值不值？宿舍党实测，吸水速干还不掉毛](https://laobaixingbanshi.com/?p=6773)
 - [51.3元里兜小黑核混合猫砂到底好不好用？两只猫铲屎一个月，除臭结团实测](https://laobaixingbanshi.com/?p=6774)
 - [5块1的网红棉拖鞋到底能不能穿？16万人买过，上脚一周说说真实感受](https://laobaixingbanshi.com/?p=6775)
-## 本地生活·美团（225篇）
+## 本地生活·美团（226篇）
+- [31.9元喝到星巴克大杯太妃榛果拿铁：冬季限定，海拉尔到店核销记](https://laobaixingbanshi.com/wanle/xingbake-taifei-zhengguo-natie-hailaer-1128.html)
 - [御包婆老包子外卖优惠力度最大的套餐是哪个？【一人食】自选2个包子+13.50元亲测最划算](https://laobaixingbanshi.com/wanle/%e5%be%a1%e5%8c%85%e5%a9%86%e8%80%81%e5%8c%85%e5%ad%90%e5%a4%96%e5%8d%96%e4%bc%98%e6%83%a0%e5%8a%9b%e5%ba%a6%e6%9c%80%e5%a4%a7%e7%9a%84%e5%a5%97%e9%a4%90%e6%98%af%e5%93%aa%e4%b8%aa%ef%bc%9f%e3%80%90.html)
 - [怎么领茶百道的优惠券？固体杨枝甘露（中杯）团购攻略，15.90元吃21.00元套餐](https://laobaixingbanshi.com/wanle/%e6%80%8e%e4%b9%88%e9%a2%86%e8%8c%b6%e7%99%be%e9%81%93%e7%9a%84%e4%bc%98%e6%83%a0%e5%88%b8%ef%bc%9f%e5%9b%ba%e4%bd%93%e6%9d%a8%e6%9e%9d%e7%94%98%e9%9c%b2%ef%bc%88%e4%b8%ad%e6%9d%af%ef%bc%89%e5%9b%a2.html)
 - [九号温泉生活馆团购划算吗？【开黑观赛】榴莲畅吃｜工429.66元实测，比门店便宜29.3元](https://laobaixingbanshi.com/wanle/%e4%b9%9d%e5%8f%b7%e6%b8%a9%e6%b3%89%e7%94%9f%e6%b4%bb%e9%a6%86%e5%9b%a2%e8%b4%ad%e5%88%92%e7%ae%97%e5%90%97%ef%bc%9f%e3%80%90%e5%bc%80%e9%bb%91%e8%a7%82%e8%b5%9b%e3%80%91%e6%a6%b4%e8%8e%b2%e7%95%85.html)
@@ -3197,7 +3199,8 @@
 - [离职证明范本（解除劳动合同证明，含社保转移与竞业限制说明，可直接填空）Word下载](https://laobaixingbanshi.com/wenku/%e7%a6%bb%e8%81%8c%e8%af%81%e6%98%8e%e8%8c%83%e6%9c%ac%ef%bc%88%e8%a7%a3%e9%99%a4%e5%8a%b3%e5%8a%a8%e5%90%88%e5%90%8c%e8%af%81%e6%98%8e%ef%bc%8c%e5%90%ab%e7%a4%be%e4%bf%9d%e8%bd%ac%e7%a7%bb%e4%b8%8e.html)
 - [160元的亲子票包1大1小加海狮表演，比门市省一半，先问清孩子身高](https://laobaixingbanshi.com/wanle/taipingyang-haidi-shijie-qinzi-160.html)
 - [崇礼开板了，818元在太子城住两晚不含雪票，这单该不该抢](https://laobaixingbanshi.com/wanle/chongli-even-818-1125.html)
-## 知识文库（584篇）
+## 知识文库（585篇）
+- [交完取暖费能提公积金了：呼伦贝尔5类住房消费提取，海拉尔窗口问清的全流程](https://laobaixingbanshi.com/wenku/hulunbeier-gongjijin-zhufang-xiaofei-tiqu-1128.html)
 - [医保手工报销总被退回？九项材料＋申请书模板，缺一张就得再跑一趟](https://laobaixingbanshi.com/wenku/yibao-baoxiao-1116.html)
 - [营业执照年报6月30日关闸：六个栏目五个坑，附情况说明模板](https://laobaixingbanshi.com/wenku/gtshang-nianbao-1116.html)
 - [证件丢了先别急着跑窗口：三类补办的材料、份数和办理顺序](https://laobaixingbanshi.com/wenku/zhengjian-buban-1115.html)
