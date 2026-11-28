@@ -10,7 +10,8 @@
 
 
 
-## 招考就业（780篇）
+## 招考就业（781篇）
+- [113个岗，明天24点关闸：贵州邮政秋招只能报一个岗位，材料今晚就得理清](https://laobaixingbanshi.com/zhaokao/guizhou-youzheng-113ren-1130-jiezhi-1129.html)
 - [65个事业编、12月1日开报：内蒙古气象这批，2025和2026届没交社保的也能报](https://laobaixingbanshi.com/zhaokao/neimenggu-qixiang-2027-zhaopin-65ren-1201.html)
 - [42个岗位、聘期3年：金沙农村教师示范岗11月16日开报，先看你在不在乡镇名单](https://laobaixingbanshi.com/zhaokao/jinsha-tegang-1116.html)
 - [100元报名费、11月19日23:59关闸：贵州水务这批岗，附件岗位表盯住三行](https://laobaixingbanshi.com/zhaokao/guizhou-shuiwu-1116.html)
@@ -4336,7 +4337,8 @@
 - [房屋租赁合同范本（个人租房通用，含押金、租金、维修、退租与防坑条款）Word下载](https://laobaixingbanshi.com/falv/%e6%88%bf%e5%b1%8b%e7%a7%9f%e8%b5%81%e5%90%88%e5%90%8c%e8%8c%83%e6%9c%ac%ef%bc%88%e4%b8%aa%e4%ba%ba%e7%a7%9f%e6%88%bf%e9%80%9a%e7%94%a8%ef%bc%8c%e5%90%ab%e6%8a%bc%e9%87%91%e3%80%81%e7%a7%9f%e9%87%91.html)
 - [个人借款合同范本（民间借贷标准版，含利息、还款、逾期违约金与担保条款）Word下载](https://laobaixingbanshi.com/falv/%e4%b8%aa%e4%ba%ba%e5%80%9f%e6%ac%be%e5%90%88%e5%90%8c%e8%8c%83%e6%9c%ac%ef%bc%88%e6%b0%91%e9%97%b4%e5%80%9f%e8%b4%b7%e6%a0%87%e5%87%86%e7%89%88%ef%bc%8c%e5%90%ab%e5%88%a9%e6%81%af%e3%80%81%e8%bf%98.html)
 - [供暖两个月了还能报停吗？海拉尔这道门在 8 月底就关了](https://laobaixingbanshi.com/wenku/gongre-tingre-cailiao-1121.html)
-## 法律合同（180篇）
+## 法律合同（181篇）
+- [房东一句话就能让你搬走：二房东转租，签约前必须先拿到这张纸](https://laobaixingbanshi.com/falv/erfangdong-zhuanzu-fangdong-yiju-hua-1129.html)
 - [雇人帮忙要不要签合同？劳务合同模板里最容易漏掉的是第三条](https://laobaixingbanshi.com/falv/laowu-hetong-1116.html)
 - [租房押金老被扣？合同里把维修时限和退押条件写死，退租就不用吵](https://laobaixingbanshi.com/falv/fangwu-zulin-1116.html)
 - [劳务合同写成劳动合同，赔偿能差一倍：一张纸上的四个关键条款](https://laobaixingbanshi.com/falv/laowu-hetong-1115.html)
@@ -4671,7 +4673,8 @@
 - [教师资格证《综合素质（中学）》100题（含答案与解析，2027备考刷题）Word下载](https://laobaixingbanshi.com/kaozheng/%e6%95%99%e5%b8%88%e8%b5%84%e6%a0%bc%e8%af%81%e3%80%8a%e7%bb%bc%e5%90%88%e7%b4%a0%e8%b4%a8%ef%bc%88%e4%b8%ad%e5%ad%a6%ef%bc%89%e3%80%8b100%e9%a2%98%ef%bc%88%e5%90%ab%e7%ad%94%e6%a1%88%e4%b8%8e.html)
 - [导游资格证《导游业务》100题（含答案与解析，2027备考刷题）Word下载](https://laobaixingbanshi.com/kaozheng/%e5%af%bc%e6%b8%b8%e8%b5%84%e6%a0%bc%e8%af%81%e3%80%8a%e5%af%bc%e6%b8%b8%e4%b8%9a%e5%8a%a1%e3%80%8b100%e9%a2%98%ef%bc%88%e5%90%ab%e7%ad%94%e6%a1%88%e4%b8%8e%e8%a7%a3%e6%9e%90%ef%bc%8c2027%e5%a4%87.html)
 - [工地停工工资没结，先打 0470-8117196：海拉尔欠薪维权四步，顺序反了容易白跑](https://laobaixingbanshi.com/falv/gongdi-qianxin-1122.html)
-## 职业考证（198篇）
+## 职业考证（199篇）
+- [证书集中领取就两天，错过了怎么拿？内蒙古这批测绘师、设备监理师的补领路子](https://laobaixingbanshi.com/kaozheng/neimenggu-cehuishi-shebei-jianlishi-zhengshu-lingqu-1129.html)
 - [高处作业证到期没复审等于白考：6年有效期里，第3年这道手续别拖](https://laobaixingbanshi.com/kaozheng/gaochu-fushen-1126.html)
 - [低压电工理论100题：安全电压、接地、验电这三类题最容易丢分](https://laobaixingbanshi.com/kaozheng/diangong-100ti-1116.html)
 - [保育员初级100题：晨检、消毒、急救三块占分最多，先背这四套动作](https://laobaixingbanshi.com/kaozheng/baoyuyuan-100ti-1116.html)
